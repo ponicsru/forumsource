@@ -1,0 +1,170 @@
+entries:
+- title: Архив форума  
+  folders:
+  - title: Новости Ponics
+    output: web
+    folderitems:
+  - title: С миру по нитке
+    output: web
+    folderitems:
+  - title: Теория
+    output: web
+    folderitems:
+    - title: бывает ли такое?
+      url: /b3_t8_byvaet_li_takoe.html
+      output: web
+    - title: Свет.
+      url: /test.html
+      output: web
+    - title: Аэропоника
+      url: /test.html
+      output: web
+    - title: Autopot что за система?
+      url: /test.html
+      output: web
+    - title: Минеральная вата «Гродан»
+      url: /test.html
+      output: web
+    - title: Строительство зимней теплицы. Что , Зачем и как...
+      url: /test.html
+      output: web
+    - title: Капитальное культивационное сооружение.
+      url: /test.html
+      output: web
+    - title: Для всех кто что то продает!
+      url: /test.html
+      output: web
+    - title: Обсуждение самодельной вертикальной трех-уровневой гидропонной установки на 160
+      url: /test.html
+      output: web
+    - title: Мицелий грибов
+      url: /test.html
+      output: web
+    - title: Букварь для начинающих
+      url: /test.html
+      output: web
+    - title: Совместимость растений
+      url: /test.html
+      output: web
+    - title: Анекдот о семейной жизни
+      url: /test.html
+      output: web
+    - title: О производительности
+      url: /test.html
+      output: web
+    - title: Глобальный вопрос о жизнедеятельности растений
+      url: /test.html
+      output: web
+    - title: дополнительные технологии 
+      url: /test.html
+      output: web
+    - title: Тюльпаны на гидропонике.
+      url: /test.html
+      output: web
+    - title: How-To_Hydroponics
+      url: /test.html
+      output: web
+    - title: Солнечный вегитарий- работает или нет?
+      url: /test.html
+      output: web
+    - title: Овощной бизнес - выгодно или нет?
+      url: /test.html
+      output: web
+    - title: Бамбук на гидропонике
+      url: /test.html
+      output: web
+  - title: Помогите
+    output: web
+    folderitems:
+  - title: Питательные растворы
+    output: web
+    folderitems:
+  - title: Субстраты
+    output: web
+    folderitems:
+  - title: Теплицы
+    output: web
+    folderitems:
+  - title: Узлы, агрегаты, установки
+    output: web
+    folderitems:
+  - title: Реализованные установки
+    output: web
+    folderitems:
+  - title: Отчеты о выращивании
+    output: web
+    folderitems:
+  - title: Горе луковое!
+    output: web
+    folderitems:
+  - title: Видео
+    output: web
+    folderitems:
+  - title: Домики пользователей
+    output: web
+    folderitems:
+  - title: Видео по теме
+    output: web
+    folderitems:
+  - title: Общение
+    output: web
+    folderitems:
+  - title: Рецепты
+    output: web
+    folderitems:
+  - title: Экономика ЛПХ
+    output: web
+    folderitems:
+  - title: Куплю/Продам
+    output: web
+    folderitems:
+  - title: Семена/растения/саженцы
+    output: web
+    folderitems:
+  - title: Оборудование для гидропоники
+    output: web
+    folderitems:
+  - title: Работа
+    output: web
+    folderitems:
+  - title: Требуются
+    output: web
+    folderitems:
+  - title: Ищу работу
+    output: web
+    folderitems:
+  - title: Магазин Ponics.ru
+    output: web
+    folderitems:
+  - title: Материалы и наработки
+    output: web
+    folderitems:
+  - title: Журналы
+    output: web
+    folderitems:
+  - title: Настоящий Хозяин
+    output: web
+    folderitems:
+  - title: Сад/Огород/Дача
+    output: web
+    folderitems:
+  - title: Рыбоводство
+    output: web
+    folderitems:
+  - title: Водоросли
+    output: web
+    folderitems:
+  - title: Грибы
+    output: web
+    folderitems:
+  - title: Пасека
+    output: web
+    folderitems:
+  - title: Птица
+    output: web
+    folderitems:
+  - title: Кролики
+    output: web
+    folderitems:
+
+
