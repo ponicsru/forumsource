@@ -1,7 +1,7 @@
 ---
 title: Бывает ли такое
 sidebar: ponics_sidebar
-permalink: b3_teoriya/b3_t00008_byvaet_li_takoe.html
+permalink: b3_teoriya/b3_t0008_byvaet_li_takoe.html
 ---
 
 **nikadubrovsky**:

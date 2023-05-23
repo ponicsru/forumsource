@@ -1,7 +1,7 @@
 ---
 title: Есть вопрос? - Задай его здесь, а то забаню!
 sidebar: ponics_sidebar
-permalink: b5_pitatelnye_rastvory/b5_t00336_est_vopros_zaday_ego_zdes_a_to_zabany.html
+permalink: b5_pitatelnye_rastvory/b5_t0336_est_vopros_zaday_ego_zdes_a_to_zabany.html
 ---
 
 **Mole_Garden** 
