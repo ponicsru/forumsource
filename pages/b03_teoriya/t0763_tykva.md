@@ -1,5 +1,5 @@
 ---
-title: Тыква
+title: "Тыква"
 sidebar: ponics_sidebar
 ---
 

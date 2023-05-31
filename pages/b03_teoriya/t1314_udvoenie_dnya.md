@@ -1,5 +1,5 @@
 ---
-title: Удвоение дня
+title: "Удвоение дня"
 sidebar: ponics_sidebar
 ---
 

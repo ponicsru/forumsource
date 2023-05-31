@@ -1,5 +1,5 @@
 ---
-title: Раствор для выгонки лука
+title: "Раствор для выгонки лука"
 sidebar: ponics_sidebar
 ---
 

@@ -1,5 +1,5 @@
 ---
-title: Какой свет нужен зелени?
+title: "Какой свет нужен зелени?"
 sidebar: ponics_sidebar
 ---
 

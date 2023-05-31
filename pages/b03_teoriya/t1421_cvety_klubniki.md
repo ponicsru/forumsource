@@ -1,5 +1,5 @@
 ---
-title: Цветы клубники
+title: "Цветы клубники"
 sidebar: ponics_sidebar
 ---
 

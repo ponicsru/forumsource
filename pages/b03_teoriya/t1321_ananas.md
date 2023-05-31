@@ -1,5 +1,5 @@
 ---
-title: Ананас
+title: "Ананас"
 sidebar: ponics_sidebar
 ---
 

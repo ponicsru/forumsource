@@ -1,5 +1,5 @@
 ---
-title: Что эффективней DWC или периодика
+title: "Что эффективней DWC или периодика"
 sidebar: ponics_sidebar
 ---
 

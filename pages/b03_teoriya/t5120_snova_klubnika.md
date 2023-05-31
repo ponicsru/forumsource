@@ -1,5 +1,5 @@
 ---
-title: Снова клубника
+title: "Снова клубника"
 sidebar: ponics_sidebar
 ---
 

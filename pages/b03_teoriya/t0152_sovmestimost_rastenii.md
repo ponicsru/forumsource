@@ -1,5 +1,5 @@
 ---
-title: Совместимость растений
+title: "Совместимость растений"
 sidebar: ponics_sidebar
 ---
 

@@ -1,5 +1,5 @@
 ---
-title: сколько кушают растения
+title: "сколько кушают растения"
 sidebar: ponics_sidebar
 ---
 

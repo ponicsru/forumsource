@@ -1,5 +1,5 @@
 ---
-title: свет и расчет полива
+title: "свет и расчет полива"
 sidebar: ponics_sidebar
 ---
 

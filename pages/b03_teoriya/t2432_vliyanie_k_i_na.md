@@ -1,5 +1,5 @@
 ---
-title: Влияние K и Na
+title: "Влияние K и Na"
 sidebar: ponics_sidebar
 ---
 

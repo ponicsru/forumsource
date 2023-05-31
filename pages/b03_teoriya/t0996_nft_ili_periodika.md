@@ -1,5 +1,5 @@
 ---
-title: NFT или периодика?
+title: "NFT или периодика?"
 sidebar: ponics_sidebar
 ---
 

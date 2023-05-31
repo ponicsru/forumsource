@@ -1,5 +1,5 @@
 ---
-title: семена
+title: "семена"
 sidebar: ponics_sidebar
 ---
 

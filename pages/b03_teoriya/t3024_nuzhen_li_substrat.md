@@ -1,5 +1,5 @@
 ---
-title: Нужен ли субстрат?
+title: "Нужен ли субстрат?"
 sidebar: ponics_sidebar
 ---
 

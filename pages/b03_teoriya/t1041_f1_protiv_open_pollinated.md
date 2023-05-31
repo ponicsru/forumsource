@@ -1,5 +1,5 @@
 ---
-title: F1 против Open Pollinated
+title: "F1 против Open Pollinated"
 sidebar: ponics_sidebar
 ---
 

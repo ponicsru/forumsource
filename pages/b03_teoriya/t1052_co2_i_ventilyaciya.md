@@ -1,5 +1,5 @@
 ---
-title: CO2 и вентиляция
+title: "CO2 и вентиляция"
 sidebar: ponics_sidebar
 ---
 

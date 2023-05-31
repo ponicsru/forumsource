@@ -1,5 +1,5 @@
 ---
-title: Книги по гидропонике
+title: "Книги по гидропонике"
 sidebar: ponics_sidebar
 ---
 

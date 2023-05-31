@@ -1,5 +1,5 @@
 ---
-title: FAQ гидропоника для чайников
+title: "FAQ: гидропоника для чайников"
 sidebar: ponics_sidebar
 ---
 

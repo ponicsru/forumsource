@@ -1,5 +1,5 @@
 ---
-title: Бамбук на гидропонике
+title: "Бамбук на гидропонике"
 sidebar: ponics_sidebar
 ---
 

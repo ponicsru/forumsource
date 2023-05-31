@@ -1,5 +1,5 @@
 ---
-title: Город будущего
+title: "Город будущего"
 sidebar: ponics_sidebar
 ---
 

@@ -1,5 +1,5 @@
 ---
-title: How-To_Hydroponics
+title: "How-To_Hydroponics"
 sidebar: ponics_sidebar
 ---
 

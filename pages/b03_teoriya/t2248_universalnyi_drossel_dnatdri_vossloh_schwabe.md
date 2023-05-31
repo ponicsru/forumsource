@@ -1,5 +1,5 @@
 ---
-title: Универсальный дроссель ДНАТ/ДРИ Vossloh Schwabe
+title: "Универсальный дроссель ДНАТ/ДРИ Vossloh Schwabe"
 sidebar: ponics_sidebar
 ---
 

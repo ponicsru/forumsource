@@ -1,5 +1,5 @@
 ---
-title: проверка информации
+title: "проверка информации"
 sidebar: ponics_sidebar
 ---
 

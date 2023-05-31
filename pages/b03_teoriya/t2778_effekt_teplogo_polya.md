@@ -1,5 +1,5 @@
 ---
-title: Эффект Теплого Поля
+title: "Эффект Теплого Поля"
 sidebar: ponics_sidebar
 ---
 

@@ -1,5 +1,5 @@
 ---
-title: Селекция
+title: "Селекция"
 sidebar: ponics_sidebar
 ---
 

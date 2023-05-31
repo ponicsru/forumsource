@@ -1,5 +1,5 @@
 ---
-title: Как понижать EC
+title: "Как понижать EC"
 sidebar: ponics_sidebar
 ---
 

@@ -1,5 +1,5 @@
 ---
-title: Гидропоника для зелени
+title: "Гидропоника для зелени"
 sidebar: ponics_sidebar
 ---
 

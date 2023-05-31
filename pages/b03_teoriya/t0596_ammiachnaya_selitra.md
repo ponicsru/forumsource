@@ -1,5 +1,5 @@
 ---
-title: Аммиачная селитра
+title: "Аммиачная селитра"
 sidebar: ponics_sidebar
 ---
 

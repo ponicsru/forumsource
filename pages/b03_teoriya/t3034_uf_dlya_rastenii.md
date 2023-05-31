@@ -1,5 +1,5 @@
 ---
-title: УФ для растений
+title: "УФ для растений"
 sidebar: ponics_sidebar
 ---
 

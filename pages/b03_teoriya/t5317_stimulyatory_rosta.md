@@ -1,5 +1,5 @@
 ---
-title: Стимуляторы роста
+title: "Стимуляторы роста"
 sidebar: ponics_sidebar
 ---
 

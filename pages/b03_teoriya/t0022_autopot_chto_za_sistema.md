@@ -1,5 +1,5 @@
 ---
-title: \"Autopot\" что за система?
+title: "\"Autopot\" что за система?"
 sidebar: ponics_sidebar
 ---
 

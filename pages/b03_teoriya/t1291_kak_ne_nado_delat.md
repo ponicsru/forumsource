@@ -1,5 +1,5 @@
 ---
-title: Как не надо делать!
+title: "Как не надо делать!"
 sidebar: ponics_sidebar
 ---
 

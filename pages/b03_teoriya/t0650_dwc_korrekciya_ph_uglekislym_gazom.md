@@ -1,5 +1,5 @@
 ---
-title: DWC коррекция PH углекислым газом
+title: "DWC коррекция PH углекислым газом"
 sidebar: ponics_sidebar
 ---
 

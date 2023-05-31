@@ -1,5 +1,5 @@
 ---
-title: Пенопоника!?
+title: "Пенопоника!?"
 sidebar: ponics_sidebar
 ---
 

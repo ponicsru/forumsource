@@ -1,5 +1,5 @@
 ---
-title: СО2 и температура
+title: "СО2 и температура"
 sidebar: ponics_sidebar
 ---
 

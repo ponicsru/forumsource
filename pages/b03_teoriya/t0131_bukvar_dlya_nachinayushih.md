@@ -1,5 +1,5 @@
 ---
-title: Букварь для начинающих
+title: "Букварь для начинающих"
 sidebar: ponics_sidebar
 ---
 

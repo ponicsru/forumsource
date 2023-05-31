@@ -1,5 +1,5 @@
 ---
-title: Безсубстрат
+title: "Безсубстрат"
 sidebar: ponics_sidebar
 ---
 

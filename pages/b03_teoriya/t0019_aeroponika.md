@@ -1,5 +1,5 @@
 ---
-title: Аэропоника
+title: "Аэропоника"
 sidebar: ponics_sidebar
 ---
 

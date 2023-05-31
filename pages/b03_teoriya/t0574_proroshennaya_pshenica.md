@@ -1,5 +1,5 @@
 ---
-title: пророшенная пшеница
+title: "пророшенная пшеница"
 sidebar: ponics_sidebar
 ---
 

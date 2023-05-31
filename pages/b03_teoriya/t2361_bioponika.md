@@ -1,5 +1,5 @@
 ---
-title: Биопоника
+title: "Биопоника"
 sidebar: ponics_sidebar
 ---
 

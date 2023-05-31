@@ -1,5 +1,5 @@
 ---
-title: Как затормозить рост?
+title: "Как затормозить рост?"
 sidebar: ponics_sidebar
 ---
 

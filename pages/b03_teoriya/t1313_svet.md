@@ -1,5 +1,5 @@
 ---
-title: свет
+title: "свет"
 sidebar: ponics_sidebar
 ---
 
