@@ -128,6 +128,7 @@ sidebar: ponics_sidebar
 
 Не в тему пирамиды, но думаю длякартошкиоптимальной будет такая система аэропоники.
 
+[![](/attachimages/5317_kartofel.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
 
 **otec** 23-01-2011
 
@@ -209,6 +210,7 @@ sidebar: ponics_sidebar
 
 И еще немного материала во вложении.
 
+[dokagene.zip](https://t.me/ponics_ru_files/0){:target="_blank"}
 
 **otec** 23-01-2011
 
@@ -381,6 +383,9 @@ Coccinella, спасибо за ответ про цветение. А я в п�
 
 ![](/imagehost/thumbs/growingpotatosinbags20103.jpg)
 
+[![](/attachimages/6308_growing-potatos-in-bags-2010-4.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+
+[![](/attachimages/6310_growing-potatoes-in-bags-7.jpg)](https://t.me/ponics_ru_files/1){:target="_blank"}
 
 **Mole_Garden** 18-03-2011
 

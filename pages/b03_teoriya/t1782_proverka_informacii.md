@@ -79,6 +79,7 @@ sidebar: ponics_sidebar
 
 Это действительно все считается и учитывается...
 
+[4.D Crop production and agricultural soils GB2009_rus_red-3.pdf](https://t.me/ponics_ru_files/0){:target="_blank"}
 
 **Serg17** 30-10-2013
 

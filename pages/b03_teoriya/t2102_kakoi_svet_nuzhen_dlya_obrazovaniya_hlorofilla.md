@@ -87,6 +87,7 @@ sidebar: ponics_sidebar
 
 Здесь соглашусь, не стоит лишний раз изобретать велосипед :)
 
+[![](/attachimages/16997_свет.gif)](https://t.me/ponics_ru_files/0){:target="_blank"}
 
 **Strangeman** 17-09-2014
 

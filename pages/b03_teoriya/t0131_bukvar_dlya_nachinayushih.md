@@ -18,6 +18,7 @@ sidebar: ponics_sidebar
 
 Что скажите господа? 
 
+[![](/attachimages/186_Табл.png)](https://t.me/ponics_ru_files/1283){:target="_blank"}
 
 **mdima** 27-05-2009
 
@@ -168,6 +169,7 @@ valery
 
 Вмешательства/правка/доделки – приветствуются!!! Пусть все доработанные версии будут (если будут!), как то нумероваться. Букварь 1.1; 1.2; 2.1, ну сами знаете как, в общем!
 
+[Букварь.xlsx](https://t.me/ponics_ru_files/1284){:target="_blank"}
 
 **samodel** 29-05-2009
 
@@ -175,6 +177,7 @@ valery
 
 Вот! Так у всех работать должен.
 
+[Букварь 1.1.xls](https://t.me/ponics_ru_files/1285){:target="_blank"}
 
 **Mole_Garden** 29-05-2009
 

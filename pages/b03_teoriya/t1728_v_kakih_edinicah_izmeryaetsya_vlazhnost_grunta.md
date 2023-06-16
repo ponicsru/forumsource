@@ -79,6 +79,7 @@ sidebar: ponics_sidebar
 
 Вот, что у меня получилось :)
 
+[sipolu desti p.pdf](https://t.me/ponics_ru_files/0){:target="_blank"}
 
 **Coccinella** 18-04-2013
 

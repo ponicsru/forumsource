@@ -92,4 +92,4 @@ description: ""
 
 github: 
 
-keep_files: [ imagehost, imagehost2, wp-content ]
+keep_files: [ imagehost, imagehost2, wp-content, attachimages ]

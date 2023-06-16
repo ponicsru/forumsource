@@ -213,6 +213,7 @@ PDF изначально у них установлен, замечательн�
 
 сюда запихал
 
+[рекомедации Энзы по выращиванию салата и зеленных в гидропонике.pdf](https://t.me/ponics_ru_files/0){:target="_blank"}
 
 **valery** 06-05-2013
 
@@ -350,8 +351,21 @@ Safari 6.0.4.
 
 **Гидропоника** 06-05-2013
 
-если керамзит как крупный песок то все и без фото понятно, у меня крупнее намного
+> > если керамзит как крупный песок то все и без фото понятно, у меня крупнее намного
 
+[![](/attachimages/13297_IMG415.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+
+[![](/attachimages/13299_IMG418.jpg)](https://t.me/ponics_ru_files/1){:target="_blank"}
+
+[![](/attachimages/13301_IMG419.jpg)](https://t.me/ponics_ru_files/2){:target="_blank"}
+
+[![](/attachimages/13303_IMG420.jpg)](https://t.me/ponics_ru_files/3){:target="_blank"}
+
+[![](/attachimages/13305_IMG421.jpg)](https://t.me/ponics_ru_files/4){:target="_blank"}
+
+[![](/attachimages/13307_IMG422.jpg)](https://t.me/ponics_ru_files/5){:target="_blank"}
+
+[![](/attachimages/13309_IMG423.jpg)](https://t.me/ponics_ru_files/6){:target="_blank"}
 
 **Гидропоника** 06-05-2013
 
@@ -477,6 +491,7 @@ Safari 6.0.4.
 
 за то другие взошли, практически 100% семян 
 
+[![](/attachimages/13316_999994.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
 
 **valery** 07-05-2013
 
@@ -545,6 +560,7 @@ Safari 6.0.4.
 
 салат и укроп
 
+[![](/attachimages/13333_IMG426.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
 
 **Гидропоника** 10-05-2013
 
@@ -784,6 +800,7 @@ Safari 6.0.4.
 
 причем это на 5 стаканчиках из 20 
 
+[![](/attachimages/13371_IMG428.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
 
 **Serg17** 17-05-2013
 
@@ -803,6 +820,7 @@ Safari 6.0.4.
 
  *crazy* салатик, теперь красуется в моем профиле *Bos*
 
+[![](/attachimages/13376_IMG429.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
 
 **** 19-05-2013
 
@@ -815,6 +833,11 @@ Safari 6.0.4.
 
 10 дней роста *crazy* что было 10 дней назад в посте Ответ #73
 
+[![](/attachimages/13464_IMG454.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+
+[![](/attachimages/13466_IMG458.jpg)](https://t.me/ponics_ru_files/1){:target="_blank"}
+
+[![](/attachimages/13468_IMG462.jpg)](https://t.me/ponics_ru_files/2){:target="_blank"}
 
 **Гидропоника** 29-05-2013
 

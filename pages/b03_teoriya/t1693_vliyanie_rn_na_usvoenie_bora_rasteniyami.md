@@ -101,6 +101,7 @@ sidebar: ponics_sidebar
 
 [http://agromage.com/stat_id.php?id=1007](http://agromage.com/stat_id.php?id=1007){:target="_blank"}
 
+[![](/attachimages/12945_Bor.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
 
 **Oxy** 06-04-2013
 

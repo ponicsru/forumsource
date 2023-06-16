@@ -133,6 +133,13 @@ VVS_, поделитесь, пожалуйста, методиками и нар
 
 В иделе надо бы укоренять в мини проточку сразу, но они физически не дотянутся. Поэтому я подставляю стаканы с раствором под усы, а в стаканы лил что попало, как оказалось, зря. 
 
+[![](/attachimages/18960_IMG_20180622_183630.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+
+[![](/attachimages/18962_IMG_20180622_183641.jpg)](https://t.me/ponics_ru_files/1){:target="_blank"}
+
+[![](/attachimages/18964_IMG_20180622_183709.jpg)](https://t.me/ponics_ru_files/2){:target="_blank"}
+
+[![](/attachimages/18966_IMG_20180622_183751.jpg)](https://t.me/ponics_ru_files/3){:target="_blank"}
 
 **siv237** 22-06-2018
 
@@ -154,4 +161,5 @@ VVS_, поделитесь, пожалуйста, методиками и нар
 
 По хорошему стаканы надо закрывать от света, но лень. И так хорошо.
 
+[![](/attachimages/18968_IMG_20180622_191236.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
 

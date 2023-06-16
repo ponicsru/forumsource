@@ -683,6 +683,11 @@ To lop754
 
 Чем не биопоника.
 
+[![](/attachimages/20517_Посад1.jpeg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+
+[![](/attachimages/20519_ОбрезМалин.jpeg)](https://t.me/ponics_ru_files/1){:target="_blank"}
+
+[![](/attachimages/20521_ПриготЩеп.jpeg)](https://t.me/ponics_ru_files/2){:target="_blank"}
 
 **cpf** 20-12-2019
 

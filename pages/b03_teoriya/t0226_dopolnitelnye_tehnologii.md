@@ -47,6 +47,9 @@ sidebar: ponics_sidebar
 
 "структуратор" и девушка с теплицы.
 
+[![](/attachimages/251_вода1.png)](https://t.me/ponics_ru_files/1453){:target="_blank"}
+
+[![](/attachimages/253_вода2.png)](https://t.me/ponics_ru_files/1454){:target="_blank"}
 
 **orgail** 08-07-2009
 

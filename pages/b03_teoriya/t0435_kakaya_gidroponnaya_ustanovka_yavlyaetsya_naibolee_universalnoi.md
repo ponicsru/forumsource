@@ -462,6 +462,7 @@ gorby777
 
 Вот здесь ещё посмотрите [http://forum.ponics.ru/index.php?topic=1007.0](http://forum.ponics.ru/index.php?topic=1007.0){:target="_blank"}
 
+[![](/attachimages/7469_Установка.jpg)](https://t.me/ponics_ru_files/3486){:target="_blank"}
 
 **gorby777** 28-06-2011
 

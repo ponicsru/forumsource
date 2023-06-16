@@ -147,6 +147,7 @@ sidebar: ponics_sidebar
 
 PS пытался когда то укоренить верхушку - не получилось ничего :(
 
+[![](/attachimages/10387_IMG_20120326_233629-1.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
 
 **ALB** 10-04-2012
 

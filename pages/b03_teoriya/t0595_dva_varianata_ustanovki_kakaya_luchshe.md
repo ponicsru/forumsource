@@ -15,6 +15,7 @@ sidebar: ponics_sidebar
 
 спасибо.
 
+[![](/attachimages/3115_system1.png)](https://t.me/ponics_ru_files/0){:target="_blank"}
 
 **Mole_Garden** 10-08-2010
 
@@ -89,6 +90,7 @@ sidebar: ponics_sidebar
 
 А помпа с глушителем из бутылки - абсолютно бесшумный аппарат.
 
+[![](/attachimages/3270_kapla.png)](https://t.me/ponics_ru_files/0){:target="_blank"}
 
 **maxsoft** 18-08-2010
 

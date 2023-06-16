@@ -76,6 +76,7 @@ sidebar: ponics_sidebar
 
 PS: Для чистоты эксперимента,кому не лень, купите в своем регионе бутылочку и протестите! 
 
+[![](/attachimages/7764_kola.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
 
 **gena1** 25-07-2011
 

@@ -126,7 +126,9 @@ NICHIA [http://www.nichia.co.jp/en/about_nichia/index.html](http://www.nichia.co
 
 Светодиод Avago Technologies HLMP-EJ32-NR0005мм, ток 20ма,напряжение 1,94В,оранжевый.
 
+[HLMP-EH32-MQ000.pdf](https://t.me/ponics_ru_files/0){:target="_blank"}
 
+[HLMP-CB31.PDF](https://t.me/ponics_ru_files/1){:target="_blank"}
 
 **otec** 25-03-2011
 

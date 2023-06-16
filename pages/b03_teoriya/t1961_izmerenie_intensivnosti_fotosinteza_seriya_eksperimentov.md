@@ -193,11 +193,13 @@ sidebar: ponics_sidebar
 
 Первая
 
+[Томат свет часть 1.pdf](https://t.me/ponics_ru_files/0){:target="_blank"}
 
 **valery** 19-02-2014
 
 Вторая
 
+[Томат свет часть 2.pdf](https://t.me/ponics_ru_files/0){:target="_blank"}
 
 **valery** 20-02-2014
 
@@ -469,6 +471,7 @@ sidebar: ponics_sidebar
 
 По моим ощущениям лист отражает где-то между 50 и 75%.
 
+[![](/attachimages/15074_Соотношение цветов.bmp)](https://t.me/ponics_ru_files/0){:target="_blank"}
 
 **Lucky82** 26-02-2014
 
@@ -517,6 +520,7 @@ sidebar: ponics_sidebar
 
 Впрочем, в иных световых условиях мы вполне можем видеть лист и серо-буро-малиновым и просто серым ... а в легких сумерках и вообще - черным.
 
+[![](/attachimages/15076_ экрана 2014-02-26 в 19.19.30.png)](https://t.me/ponics_ru_files/0){:target="_blank"}
 
 **valery** 26-02-2014
 
@@ -615,11 +619,13 @@ sidebar: ponics_sidebar
 
 R - отражение, рефлекция
 
+[![](/attachimages/15091_Снимок экрана 2014-02-27 в 17.43.36.png)](https://t.me/ponics_ru_files/0){:target="_blank"}
 
 **valery** 27-02-2014
 
 Или, например, известная "Физиология" Тайза и Цайгера - 
 
+[![](/attachimages/15093_Снимок экрана 2014-02-27 в 17.58.58.png)](https://t.me/ponics_ru_files/0){:target="_blank"}
 
 **valery** 27-02-2014
 
