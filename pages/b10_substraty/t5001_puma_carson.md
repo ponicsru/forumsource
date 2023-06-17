@@ -1,0 +1,20 @@
+---
+title: "puma carson"
+sidebar: ponics_sidebar
+---
+
+**Sheila Judson** 16-08-2019
+
+Puma x Sergio Rossie, Fall 2009 [puma evoknit](http://www.lasvegasab.com/puma-c-1/puma-evoknit-c-1_100/){:target="_blank"} Clyde, First Round Jun 24, 2009 Puma collaborates with Italian shoe designer Sergio Rossie in fashioning two specific silhouettes respectively based on the low-top Clyde and First Round high-top. Both models are donned in black, white, blue, leather, and suede to create a consisten look throughout the two models. More pics after the jump.The Clyde and the First Round are now available at Collete.Puma Cabana Racer II Jun 19, 2009 Puma makes this one strictly for the female audience. The Puma Cabana Racer II comes in two colorways; a fuchsia, purple, and sunshine yellow and a purple, fluorescecent green and White pair. Each shoe has a leather and suede upper that gives them a very fun look. 
+
+Puma Glow Poison Clyde Jun 17, 2009 Taking inspiration from the world s most poisonous frogs Puma drops this sneaker from the Poison Pack. While the upper is made with a funky colorway, and high quality materials, it is the sole that will receive the most attention. The thick glow in the dark sole is perfect for city nights, or [puma fenty suede](http://www.lasvegasab.com/puma-c-1/puma-fenty-platform-c-1_109/]puma fenty platform[/url] to stand out in the club. Get these exclusively at 57k. Puma Easy Rider Trek Limited Edition Collection Jun 14, 2009 Back In March we showed one colorway of the Puma Easy Rider, now we are presenting two more for the classic model. Each shoe has a suede and mesh upper and ranges in color greatly, from earthy greens and olives, [url=http://www.lasvegasab.com/puma-c-1/puma-fenty-suede-c-1_105/){:target="_blank"} to loud yellows and pinks. Checkout the pics after the jump. 
+
+Puma Cat 2 White/Black Jun 11, 2009 The Puma Cat 2 gets its name from the oversized Puma cat logo stitched into the heel. The old school shoes are being injected with a lil new age design by way of the ice/black outsole and the marble like cat sewn into the heel. The all white leather upper is broken up by the black and white laces. The large tongue is tipped with a red Puma Cat tongue tag. These are available at select Puma Retailers. Puma Mid Vulc Dark Grey/Metallic Silver Black/White/Royal Jun 11, 2009 The Puma Mid Vulc is exactly what it sounds like, a Puma mid with a vulcanized rubber [puma fenty white](http://www.lasvegasab.com/puma-c-1/puma-fenty-white-c-1_55/){:target="_blank"} sole. The new silhouette borrows classic style and blends it with hi tech materials to create one of the more interesting models of this year. 
+
+Puma El Clyde Jun 8, 2009 If there is every a conversion about classic sneakers 9 times outta 10 the Puma Clyde will pop up, so when we see a new model pop up our ears definitely perk up. The Puma El Clyde employs an array of materials for a beautiful shoe. The all black leather upper is broken by a fabric stripe that introduces us to a floral printed heel. The tan leather lining set against the classic all white mid/outsole frames this shoe as a definite must have for Clyde enthusiasts. Puma Match Neon Jun 8, 2009 The celebrated 1970 s Puma Match tennis shoe, worn by some of the greatest Tennis players in the world, is given a refresh armed with premium Italian Bera Raso leather. 
+
+Sky II Hi Puma Pony Cross Style Pack Jun 2, 2009 The ladies are not left out of the Puma Pony Cross Style madness with 1 of 2 very hot designs including the Sky II Hi. The popular basketball sneaker is taken off the court and into the wild with an all black faux fabrix makeover using ostrich snakeskin, nubuck leather and fur. It may sound like an unlikely melange but the tonal black colorway and purple accents on the mid and outsole blend perfectly. With just a touch of pink on the lace logo tab and lining these shoes are definite crowd pleasers. 
+
+Disc Blaze Puma Pony Cross Style Pack Jun ![](http://www.lasvegasab.com/images/shoes/puma fenty white-902etp.jpg) disc technology and Trinomic heel support are in tact.
+
+
