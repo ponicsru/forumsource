@@ -31,7 +31,7 @@ sidebar: ponics_sidebar
 
 Вот табличка, которая поможет примерно оценить ожидаемую влажность в помещении после проветривания с уличным воздухом:
 
-![](/imagehost2/thumbs/f.png)
+[![](/imagehost2/thumbs/f.png)](https://t.me/ponics_ru_files/18148){:target="_blank"}
 
 Как пользоваться.
 
@@ -88,7 +88,7 @@ H=1.05% т.е. после проветривания квартиры зимой
 
 Пример расчета влажности в помещении после проветривания
 
-![](/imagehost2/thumbs/20170201160429.png)
+[![](/imagehost2/thumbs/20170201160429.png)](https://t.me/ponics_ru_files/18149){:target="_blank"}
 
 
 **ihands** 01-02-2017
@@ -116,15 +116,15 @@ H=1.05% т.е. после проветривания квартиры зимой
 
 Да ну.. :D
 
-![](/imagehost2/thumbs/dscn9349.jpg)
+[![](/imagehost2/thumbs/dscn9349.jpg)](https://t.me/ponics_ru_files/18150){:target="_blank"}
 
 А в растильне, так вообще.
 
-![](/imagehost2/thumbs/humweek.png)
+[![](/imagehost2/thumbs/humweek.png)](https://t.me/ponics_ru_files/18151){:target="_blank"}
 
 и это при том, что на улице вот так
 
-![](/imagehost2/thumbs/tempoutweek.png)
+[![](/imagehost2/thumbs/tempoutweek.png)](https://t.me/ponics_ru_files/18152){:target="_blank"}
 
 Вабсче не лето ))
 
@@ -244,7 +244,7 @@ H=1.05% т.е. после проветривания квартиры зимой
 
 Вот ваш скрин, что мы на нем видим в левой его части в самом начале?
 
-![](/imagehost2/thumbs/humweek.png)
+[![](/imagehost2/thumbs/humweek.png)](https://t.me/ponics_ru_files/18153){:target="_blank"}
 
 
 **Vad** 01-02-2017
@@ -430,7 +430,7 @@ H=1.05% т.е. после проветривания квартиры зимой
 
 Враньё?
 
-![](/imagehost2/thumbs/313.png)
+[![](/imagehost2/thumbs/313.png)](https://t.me/ponics_ru_files/18154){:target="_blank"}
 
 
 **Jackie** 02-02-2017
@@ -442,7 +442,7 @@ H=1.05% т.е. после проветривания квартиры зимой
 
 > Враньё?
 > 
-> ![](/imagehost2/thumbs/313.png)
+> [![](/imagehost2/thumbs/313.png)](https://t.me/ponics_ru_files/18155){:target="_blank"}
 
 Чистая правда настолько, насколько это утверждение применимо к прогнозам погоды :)
 
@@ -474,7 +474,7 @@ H=1.05% т.е. после проветривания квартиры зимой
 
 Вот табличка, которая поможет примерно оценить ожидаемую влажность в помещении после проветривания с уличным воздухом:
 
-![](/imagehost2/thumbs/f.png)
+[![](/imagehost2/thumbs/f.png)](https://t.me/ponics_ru_files/18156){:target="_blank"}
 
 Как пользоваться.
 
@@ -558,7 +558,7 @@ H=1.05% т.е. после проветривания квартиры зимой
 
 Нашел вот такую табличку 
 
-![](/imagehost2/thumbs/post42350407114001448203407.jpg)
+[![](/imagehost2/thumbs/post42350407114001448203407.jpg)](https://t.me/ponics_ru_files/18156){:target="_blank"}
 
 Я так понимаю при очень высокой транспирации растению по большей части нужна вода. Снизив ЕС растение все равно съест суточную норму минералки, поскольку от сушняков питье будет обильным. Я правильно думаю?
 

@@ -702,7 +702,7 @@ sidebar: ponics_sidebar
 
 А вот с другого сайта - июль этого года в Бухаре:
 
-![](/imagehost2/thumbs/screenhunter47nov201409.jpg)
+[![](/imagehost2/thumbs/screenhunter47nov201409.jpg)](https://t.me/ponics_ru_files/13364){:target="_blank"}
 
 Как видно из графика дельта составляет примерно 11-13 градусов в самом жарком месяце.
 
@@ -724,9 +724,9 @@ sidebar: ponics_sidebar
 
 Вот температура за май и июнь:
 
-![](/imagehost2/thumbs/screenhunter48nov201421.jpg)
+[![](/imagehost2/thumbs/screenhunter48nov201421.jpg)](https://t.me/ponics_ru_files/13365){:target="_blank"}
 
-![](/imagehost2/thumbs/screenhunter49nov201422.jpg)
+[![](/imagehost2/thumbs/screenhunter49nov201422.jpg)](https://t.me/ponics_ru_files/13366){:target="_blank"}
 
 Дельта около 10 градусов.
 
@@ -859,7 +859,7 @@ sidebar: ponics_sidebar
 
 Вот схемку отрыл в сети для регулирования оборотов кулера в зависимости от температуры термодатчика. Хочу эту схемку применить в качестве некого буфера который будет выдавать воздух уже с определенной температурой для компенсации температуры ламп и теплоты из помещения. 
 
-[![](/attachimages/17167_b5-127.png)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17167_b5-127.png)](https://t.me/ponics_ru_files/13367){:target="_blank"}
 
 **Borodach1** 20-11-2014
 
@@ -914,13 +914,13 @@ sidebar: ponics_sidebar
 
 Второй модуль который будет стоять в боксе будет иметь такую же конструкцию, только спереди добавиться сборник воздуха и через гофру будет подаваться в бокс.
 
-[![](/attachimages/17169_Фото-0035.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17169_Фото-0035.jpg)](https://t.me/ponics_ru_files/13368){:target="_blank"}
 
-[![](/attachimages/17171_Фото-0040.jpg)](https://t.me/ponics_ru_files/1){:target="_blank"}
+[![](/attachimages/17171_Фото-0040.jpg)](https://t.me/ponics_ru_files/13369){:target="_blank"}
 
-[![](/attachimages/17173_Фото-0037.jpg)](https://t.me/ponics_ru_files/2){:target="_blank"}
+[![](/attachimages/17173_Фото-0037.jpg)](https://t.me/ponics_ru_files/13370){:target="_blank"}
 
-[![](/attachimages/17175_Фото-0039.jpg)](https://t.me/ponics_ru_files/3){:target="_blank"}
+[![](/attachimages/17175_Фото-0039.jpg)](https://t.me/ponics_ru_files/13371){:target="_blank"}
 
 **OLIVER** 20-11-2014
 
@@ -1113,11 +1113,11 @@ sidebar: ponics_sidebar
 
 Сегодня доделал второй блок, который будет стоять непосредственно в боксе.
 
-[![](/attachimages/17205_Фото-0050.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17205_Фото-0050.jpg)](https://t.me/ponics_ru_files/13372){:target="_blank"}
 
-[![](/attachimages/17207_Фото-0051.jpg)](https://t.me/ponics_ru_files/1){:target="_blank"}
+[![](/attachimages/17207_Фото-0051.jpg)](https://t.me/ponics_ru_files/13373){:target="_blank"}
 
-[![](/attachimages/17209_Фото-0052.jpg)](https://t.me/ponics_ru_files/2){:target="_blank"}
+[![](/attachimages/17209_Фото-0052.jpg)](https://t.me/ponics_ru_files/13374){:target="_blank"}
 
 **OLIVER** 30-11-2014
 
@@ -1125,9 +1125,9 @@ sidebar: ponics_sidebar
 
 Полки предположительно будут крепиться на цепях так, чтобы не переделывать постоянно высоту их и будут сегментные для лучшего прохождения воздуха между ними. 
 
-[![](/attachimages/17253_Рисунок1.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17253_Рисунок1.jpg)](https://t.me/ponics_ru_files/13375){:target="_blank"}
 
-[![](/attachimages/17255_Рисунок2.jpg)](https://t.me/ponics_ru_files/1){:target="_blank"}
+[![](/attachimages/17255_Рисунок2.jpg)](https://t.me/ponics_ru_files/13376){:target="_blank"}
 
 **Gnevko** 30-11-2014
 
@@ -1157,13 +1157,13 @@ sidebar: ponics_sidebar
 
  :)
 
-[![](/attachimages/17327_-0064.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17327_-0064.jpg)](https://t.me/ponics_ru_files/13377){:target="_blank"}
 
-[![](/attachimages/17329_-0068.jpg)](https://t.me/ponics_ru_files/1){:target="_blank"}
+[![](/attachimages/17329_-0068.jpg)](https://t.me/ponics_ru_files/13378){:target="_blank"}
 
-[![](/attachimages/17331_-0065.jpg)](https://t.me/ponics_ru_files/2){:target="_blank"}
+[![](/attachimages/17331_-0065.jpg)](https://t.me/ponics_ru_files/13379){:target="_blank"}
 
-[![](/attachimages/17333_-0067.jpg)](https://t.me/ponics_ru_files/3){:target="_blank"}
+[![](/attachimages/17333_-0067.jpg)](https://t.me/ponics_ru_files/13380){:target="_blank"}
 
 **Gnevko** 08-12-2014
 

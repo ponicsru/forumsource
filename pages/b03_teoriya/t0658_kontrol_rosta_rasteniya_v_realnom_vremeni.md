@@ -29,7 +29,7 @@ sidebar: ponics_sidebar
 
 собственно с последнего начну см. вложение
 
-[Электрические сигналы у высших растений.pdf](https://t.me/ponics_ru_files/0){:target="_blank"}
+[Электрические сигналы у высших растений.pdf](https://t.me/ponics_ru_files/4438){:target="_blank"}
 
 **valery** 25-11-2010
 

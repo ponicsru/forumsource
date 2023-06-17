@@ -80,7 +80,7 @@ sidebar: ponics_sidebar
 
 ![](http://plokna.ru/smajliki/smile/anime-nadpisi-7459.html)
 
-[![](/attachimages/13382_anime-nadpisi-7459.gif)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/13382_anime-nadpisi-7459.gif)](https://t.me/ponics_ru_files/10567){:target="_blank"}
 
 **artmaximus** 24-05-2013
 
@@ -106,15 +106,15 @@ sidebar: ponics_sidebar
 
 12 дней роста :)
 
-[![](/attachimages/13384_IMG441.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/13384_IMG441.jpg)](https://t.me/ponics_ru_files/10568){:target="_blank"}
 
 **Гидропоника** 25-05-2013
 
  :o 
 
-[![](/attachimages/13386_IMG444.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/13386_IMG444.jpg)](https://t.me/ponics_ru_files/10569){:target="_blank"}
 
-[![](/attachimages/13388_IMG445.jpg)](https://t.me/ponics_ru_files/1){:target="_blank"}
+[![](/attachimages/13388_IMG445.jpg)](https://t.me/ponics_ru_files/10570){:target="_blank"}
 
 **Coccinella** 26-05-2013
 

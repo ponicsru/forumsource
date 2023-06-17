@@ -61,7 +61,7 @@ sidebar: ponics_sidebar
 
 Вот, мы с женой... по ягоды.. *8)*
 
-![](/imagehost/thumbs/90117408deepestlake3hmh.jpg)
+[![](/imagehost/thumbs/90117408deepestlake3hmh.jpg)](https://t.me/ponics_ru_files/7741){:target="_blank"}
 
 
 **Coccinella** 13-04-2012
@@ -85,11 +85,11 @@ sidebar: ponics_sidebar
 
 можно такой сорт попробовать:
 
-![](/imagehost/thumbs/article124073307c32513000005dc21.jpg)
+[![](/imagehost/thumbs/article124073307c32513000005dc21.jpg)](https://t.me/ponics_ru_files/7742){:target="_blank"}
 
 или такой:
 
-![](/imagehost/thumbs/kaplicatedavisi.jpg)
+[![](/imagehost/thumbs/kaplicatedavisi.jpg)](https://t.me/ponics_ru_files/7743){:target="_blank"}
 
 :D
 

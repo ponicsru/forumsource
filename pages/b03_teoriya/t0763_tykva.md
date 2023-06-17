@@ -42,7 +42,7 @@ sidebar: ponics_sidebar
 
 **Mole_Garden** 27-02-2011
 
-Читал как то, что один товарищ хотел ее выращивать на гидропонике и чуть ли не дома. Но потом передумал, так как семена у него были вот такие. :D ![](/imagehost/thumbs/748ca3828cd1527632acb9fa3e0dkzk.jpg)
+Читал как то, что один товарищ хотел ее выращивать на гидропонике и чуть ли не дома. Но потом передумал, так как семена у него были вот такие. :D [![](/imagehost/thumbs/748ca3828cd1527632acb9fa3e0dkzk.jpg)](https://t.me/ponics_ru_files/4908){:target="_blank"}
 
 
 **Svyatoy_nv** 27-02-2011
@@ -61,9 +61,9 @@ sidebar: ponics_sidebar
 
 Шпалеру, конечно, надо крепкую. А чтобы на ногу не упала, делают вот так :)
 
-[![](/attachimages/5996_kirbis1.png)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/5996_kirbis1.png)](https://t.me/ponics_ru_files/4909){:target="_blank"}
 
-[![](/attachimages/5998_kirbis2.png)](https://t.me/ponics_ru_files/1){:target="_blank"}
+[![](/attachimages/5998_kirbis2.png)](https://t.me/ponics_ru_files/4910){:target="_blank"}
 
 **valery** 27-02-2011
 
@@ -89,13 +89,13 @@ sidebar: ponics_sidebar
 
 Валерию лучше какой-нибудь мелкоплодный сорт тыквы, вроде Баттерната или Ушики-Кури. Семена бывают у Энзы и Семиниса. А можно и вовсе декоративную, они тоже съедобны. Также неплох ТурксТурбан. Вот каких красавиц выращивал один крестьянин прошлым летом. Одному сорту не знаю названия, тот крестьянин этикетку потерял :)
 
-[![](/attachimages/6012_TurksTurban.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/6012_TurksTurban.jpg)](https://t.me/ponics_ru_files/4911){:target="_blank"}
 
-[![](/attachimages/6014_Cobra.jpg)](https://t.me/ponics_ru_files/1){:target="_blank"}
+[![](/attachimages/6014_Cobra.jpg)](https://t.me/ponics_ru_files/4912){:target="_blank"}
 
-[![](/attachimages/6016_Pyrus Bicolor.jpg)](https://t.me/ponics_ru_files/2){:target="_blank"}
+[![](/attachimages/6016_Pyrus Bicolor.jpg)](https://t.me/ponics_ru_files/4913){:target="_blank"}
 
-[![](/attachimages/6018_Picture1.jpg)](https://t.me/ponics_ru_files/3){:target="_blank"}
+[![](/attachimages/6018_Picture1.jpg)](https://t.me/ponics_ru_files/4914){:target="_blank"}
 
 **allex_step** 21-05-2018
 

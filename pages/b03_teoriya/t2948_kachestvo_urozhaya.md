@@ -71,7 +71,7 @@ sidebar: ponics_sidebar
 
 Из [SQM Crop Kit Tomato](https://app.sqm.com/aspx/SPN/MainCrops.aspx){:target="_blank"}, страница 71:
 
-![](/imagehost2/thumbs/459.png)
+[![](/imagehost2/thumbs/459.png)](https://t.me/ponics_ru_files/19499){:target="_blank"}
 
 
 **Miando** 11-09-2018

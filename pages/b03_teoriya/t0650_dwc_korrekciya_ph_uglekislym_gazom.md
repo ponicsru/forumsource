@@ -146,7 +146,7 @@ sidebar: ponics_sidebar
 
 Извиняюсь руки стали работать быстрее чем голова,раньше было наоборот *???*. Обещенное вложение постом выше.
 
-[ФОТОСИНТЕЗ, ИЛИ ЛИСТОВОЕ ПИТАНИЕ РАСТЕний.mht](https://t.me/ponics_ru_files/0){:target="_blank"}
+[ФОТОСИНТЕЗ, ИЛИ ЛИСТОВОЕ ПИТАНИЕ РАСТЕний.mht](https://t.me/ponics_ru_files/4413){:target="_blank"}
 
 **otec** 17-11-2010
 
@@ -183,13 +183,13 @@ sidebar: ponics_sidebar
 
 Продублировал статью (из темы триходерма).
 
-[корневое всасывание СО2.mht](https://t.me/ponics_ru_files/0){:target="_blank"}
+[корневое всасывание СО2.mht](https://t.me/ponics_ru_files/4414){:target="_blank"}
 
 **otec** 06-02-2011
 
 СО2 калькулятор.Может у кого есть другие варианты?
 
-[co2_calc.xls](https://t.me/ponics_ru_files/0){:target="_blank"}
+[co2_calc.xls](https://t.me/ponics_ru_files/4415){:target="_blank"}
 
 **otec** 06-02-2011
 

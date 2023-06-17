@@ -38,7 +38,7 @@ sidebar: ponics_sidebar
 
 На любом скриншоте верные 8 макроэлементов:
 
-![](/imagehost2/thumbs/63.png)
+[![](/imagehost2/thumbs/63.png)](https://t.me/ponics_ru_files/17261){:target="_blank"}
 
 *crazy* *Bravo*
 
@@ -70,15 +70,15 @@ sidebar: ponics_sidebar
 
 Верно, конкурируют:
 
-![](/imagehost2/thumbs/62pfp.png)
+[![](/imagehost2/thumbs/62pfp.png)](https://t.me/ponics_ru_files/17262){:target="_blank"}
 
 Калий понижает потребление хлора и натрия:
 
-![](/imagehost2/thumbs/63ndn.png)
+[![](/imagehost2/thumbs/63ndn.png)](https://t.me/ponics_ru_files/17263){:target="_blank"}
 
 Их же схема относит натрий к "полезным", а не "токсичным":
 
-![](/imagehost2/thumbs/61eye.png)
+[![](/imagehost2/thumbs/61eye.png)](https://t.me/ponics_ru_files/17264){:target="_blank"}
 
 
 **Borodach1** 12-03-2016

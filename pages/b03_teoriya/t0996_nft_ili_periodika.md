@@ -120,5 +120,5 @@ sidebar: ponics_sidebar
 
 На фото ее не увидеть, пока размеры ничтожны. Но то что томат жирует, не отменило начало цветения.
 
-[![](/attachimages/6900_IMG_0671.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/6900_IMG_0671.jpg)](https://t.me/ponics_ru_files/5308){:target="_blank"}
 

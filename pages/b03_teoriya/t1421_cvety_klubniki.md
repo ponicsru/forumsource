@@ -24,9 +24,9 @@ sidebar: ponics_sidebar
 
 питания и водного режима).
 
-[The Physiology of Flowering in Strawberry.pdf](https://t.me/ponics_ru_files/0){:target="_blank"}
+[The Physiology of Flowering in Strawberry.pdf](https://t.me/ponics_ru_files/7744){:target="_blank"}
 
-[Heide & Sonsteby.pdf](https://t.me/ponics_ru_files/1){:target="_blank"}
+[Heide & Sonsteby.pdf](https://t.me/ponics_ru_files/7745){:target="_blank"}
 
 **gena1** 17-04-2012
 
@@ -80,7 +80,7 @@ valery спасибо за ссылки, но там как-то слишком 
 
 Вот мой цветок, крупным планом, и если вы найдете там тычинки - буду рад.
 
-[![](/attachimages/10646_tsvet_zhen.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/10646_tsvet_zhen.jpg)](https://t.me/ponics_ru_files/7746){:target="_blank"}
 
 **Coccinella** 17-04-2012
 

@@ -11,9 +11,9 @@ sidebar: ponics_sidebar
 
 2. Насколько эффективно использование света в таких системах.
 
-[![](/attachimages/17034_1311615029_3-2.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17034_1311615029_3-2.jpg)](https://t.me/ponics_ru_files/13296){:target="_blank"}
 
-[![](/attachimages/17036_cropcitc.jpg)](https://t.me/ponics_ru_files/1){:target="_blank"}
+[![](/attachimages/17036_cropcitc.jpg)](https://t.me/ponics_ru_files/13297){:target="_blank"}
 
 **Юка** 22-10-2014
 
@@ -53,7 +53,7 @@ sidebar: ponics_sidebar
 
 Вот упрощенный вертикальный вариант вашей горизонтальной карусели. Это знакомый с детства вариант:
 
-![](/imagehost2/thumbs/12323686861karuseliek01d1720sh17.jpg)
+[![](/imagehost2/thumbs/12323686861karuseliek01d1720sh17.jpg)](https://t.me/ponics_ru_files/13298){:target="_blank"}
 
 :D :D :D
 

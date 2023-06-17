@@ -269,7 +269,7 @@ e-mail: semkom@list.ru
 
 Всхожесть 100% и очень хорошая. Урожайность тоже на высоте и самое приятно, что было написано на упаковке, то и оказалось на самом деле.
 
-[![](/attachimages/3682_urojay14092010.png)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/3682_urojay14092010.png)](https://t.me/ponics_ru_files/4220){:target="_blank"}
 
-[![](/attachimages/3684_ogurciki2.png)](https://t.me/ponics_ru_files/1){:target="_blank"}
+[![](/attachimages/3684_ogurciki2.png)](https://t.me/ponics_ru_files/4221){:target="_blank"}
 

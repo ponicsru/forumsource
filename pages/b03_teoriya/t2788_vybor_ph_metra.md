@@ -7,27 +7,27 @@ sidebar: ponics_sidebar
 
 Озадачился выбором Ph -метра. Собственно, обычная ручка есть:
 
-![](/imagehost2/thumbs/ct602011.jpg)
+[![](/imagehost2/thumbs/ct602011.jpg)](https://t.me/ponics_ru_files/18923){:target="_blank"}
 
 Понятно, что конструкция датчика предполагает погружение в жидкость, мне же надо, чтобы была возможность измерять непосредственно в субстрате, чтобы не заморачиваться с выжимками и откачкой шприцем. Логично, что датчик должен быть в форме пули, чтобы его можно было воткнуть в субстрат и легко отмыть потом.
 
 Есть чудесный тонкий длинный датчик Hanna:
 
-![](/imagehost2/thumbs/fc240b.jpg)
+[![](/imagehost2/thumbs/fc240b.jpg)](https://t.me/ponics_ru_files/18924){:target="_blank"}
 
 Длина 150 мм, диаметр 5 мм, нержавеющая сталь, подключение через BNC коннектор, гелевый электрод, но цена негуманная и измеритель к нему дорогой.
 
 Есть такого типа ручки, но цена всё ещё высока (электрод гелевый):
 
-![](/imagehost2/thumbs/tuzkovypotravinarskyphmetrphspea.jpg)
+[![](/imagehost2/thumbs/tuzkovypotravinarskyphmetrphspea.jpg)](https://t.me/ponics_ru_files/18925){:target="_blank"}
 
 Очень дёшево продаются китайские поделия с электродом с жидким наполнением, такая конструкция даёт надежду перезаправить, но вряд ли это имеет смысл из-за малой цены.
 
-![](/imagehost2/thumbs/phmetrdlyamolokaisyra.jpg)
+[![](/imagehost2/thumbs/phmetrdlyamolokaisyra.jpg)](https://t.me/ponics_ru_files/18926){:target="_blank"}
 
 После долгих поисков нашёл такое чудо:
 
-![](/imagehost2/thumbs/medidordephparasuelopceph20s.jpg)
+[![](/imagehost2/thumbs/medidordephparasuelopceph20s.jpg)](https://t.me/ponics_ru_files/18927){:target="_blank"}
 
 Кабель 1 метр, сменный электрод, цена 88 фунтов, доставка из Англии. На электрод при хранении надевается бутылочка с раствором. Термокомпенсации нет, как и во всех таких электродах, обычно в точных измерителях рядом погружают датчик температуры. Но в пределах 23 плюс минус 5 градусов точность приемлемая, 0.07. К электродам по-видимому нужно относится как к расходному материалу, поэтому наверное нет разницы, гелевый он или жидкостной, перестанет калиброваться- заменю.
 
@@ -43,7 +43,7 @@ sidebar: ponics_sidebar
 
 Ещё один нашёл, чуть дороже, но с термокомпенсацией (оказывается, есть всё, что хочешь, прямо глаза разбегаются):
 
-![](/imagehost2/thumbs/38ec296ba9e74411bb71e44bd49caeec.jpg)
+[![](/imagehost2/thumbs/38ec296ba9e74411bb71e44bd49caeec.jpg)](https://t.me/ponics_ru_files/18928){:target="_blank"}
 
 
 **КРОТ** 01-01-2018
@@ -130,7 +130,7 @@ Never store a pH electrode in pure water
 
 Диффузия, знаете ли.
 
-![](/imagehost2/thumbs/solucindealmacenamientoparaelect.jpg)
+[![](/imagehost2/thumbs/solucindealmacenamientoparaelect.jpg)](https://t.me/ponics_ru_files/18929){:target="_blank"}
 
 
 **Vad** 06-01-2018
@@ -147,7 +147,7 @@ Never store a pH electrode in pure water
 
 Давай посмотрим на картинку с твоей же ссылки...
 
-![](/imagehost2/thumbs/76.jpg)
+[![](/imagehost2/thumbs/76.jpg)](https://t.me/ponics_ru_files/18930){:target="_blank"}
 
 изучим внимательно устройство электрода..
 

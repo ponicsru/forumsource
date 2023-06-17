@@ -68,7 +68,7 @@ sidebar: ponics_sidebar
 
 **artmaximus** 12-01-2013
 
-![](/imagehost/thumbs/sam7395.jpg)
+[![](/imagehost/thumbs/sam7395.jpg)](https://t.me/ponics_ru_files/9741){:target="_blank"}
 
 
 **artmaximus** 12-01-2013
@@ -82,7 +82,7 @@ sidebar: ponics_sidebar
 
 **artmaximus** 12-01-2013
 
-![](/imagehost/thumbs/sam7372rlr.jpg)
+[![](/imagehost/thumbs/sam7372rlr.jpg)](https://t.me/ponics_ru_files/9742){:target="_blank"}
 
 
 **artmaximus** 12-01-2013
@@ -131,11 +131,11 @@ sidebar: ponics_sidebar
 
 после загрузки картинки жмем:
 
-![](/imagehost/thumbs/razmesti.jpg)
+[![](/imagehost/thumbs/razmesti.jpg)](https://t.me/ponics_ru_files/9743){:target="_blank"}
 
 копируем эту строчку:
 
-![](/imagehost/thumbs/vstavlyay.jpg)
+[![](/imagehost/thumbs/vstavlyay.jpg)](https://t.me/ponics_ru_files/9744){:target="_blank"}
 
 и вставляем сюда ))
 

@@ -7,7 +7,7 @@ sidebar: ponics_sidebar
 
 Я уже писал, что использую триходермин достаточно долго (в открытом грунте),в качестве биозащиты. На форуме регулярно появляются сообщения о болезнях растений ,может стоит предотвратить Заболевание?Препарат безопасный . Вот статья о нем в несколько другом ракурсе.
 
-[триходерма.PDF](https://t.me/ponics_ru_files/0){:target="_blank"}
+[триходерма.PDF](https://t.me/ponics_ru_files/4653){:target="_blank"}
 
 **Coccinella** 15-01-2011
 
@@ -30,5 +30,5 @@ sidebar: ponics_sidebar
 
 [http://ksv.ucoz.ua/load/prirodnoe_zemledelie/1](http://ksv.ucoz.ua/load/prirodnoe_zemledelie/1){:target="_blank"}
 
-[корневое всасывание СО2.mht](https://t.me/ponics_ru_files/0){:target="_blank"}
+[корневое всасывание СО2.mht](https://t.me/ponics_ru_files/4654){:target="_blank"}
 

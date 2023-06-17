@@ -67,7 +67,7 @@ sidebar: ponics_sidebar
 
 Сегодня впервые за 3 недели чуть чуть полила три ячейки слева (на фото - левый крайний ряд, снизу вверх) и только для того, чтобы у мамы не возник соблазн полить всю кассету. (На огороде еще снег, а зеленые пальчики просят работы :))
 
-![](/imagehost/thumbs/1ipi.jpg)
+[![](/imagehost/thumbs/1ipi.jpg)](https://t.me/ponics_ru_files/10377){:target="_blank"}
 
 
 **Coccinella** 15-04-2013
@@ -79,7 +79,7 @@ sidebar: ponics_sidebar
 
 Вот, что у меня получилось :)
 
-[sipolu desti p.pdf](https://t.me/ponics_ru_files/0){:target="_blank"}
+[sipolu desti p.pdf](https://t.me/ponics_ru_files/10378){:target="_blank"}
 
 **Coccinella** 18-04-2013
 

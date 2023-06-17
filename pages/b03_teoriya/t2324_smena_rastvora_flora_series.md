@@ -387,7 +387,7 @@ sidebar: ponics_sidebar
 
 Потом лучше пользоваться такой схемой
 
-![](/imagehost2/thumbs/7cf181070619143dc0e2b6117af04cda.jpg)
+[![](/imagehost2/thumbs/7cf181070619143dc0e2b6117af04cda.jpg)](https://t.me/ponics_ru_files/16517){:target="_blank"}
 
 Тут в миллилитрах (шприцом аптечным меряем) на 10 (десять!!!) литров.
 
@@ -430,14 +430,14 @@ sidebar: ponics_sidebar
 
 > Почему же фотки не грузятся?
 
-![](/imagehost2/thumbs/26.png)
+[![](/imagehost2/thumbs/26.png)](https://t.me/ponics_ru_files/16518){:target="_blank"}
 
 
 **antoxazuev** 24-09-2015
 
 :-) вот такие семена. Прошло 2 дня с момента их помещения в установку. Это нормальные размеры?
 
-![](/imagehost2/thumbs/dsc0853.jpg)
+[![](/imagehost2/thumbs/dsc0853.jpg)](https://t.me/ponics_ru_files/16519){:target="_blank"}
 
 
 **antoxazuev** 24-09-2015
@@ -455,16 +455,16 @@ sidebar: ponics_sidebar
 
 Вот такая установка. Лампа из 18диодов. 
 
-![](/imagehost2/thumbs/dsc0850.jpg)
+[![](/imagehost2/thumbs/dsc0850.jpg)](https://t.me/ponics_ru_files/16520){:target="_blank"}
 
-![](/imagehost2/thumbs/dsc0846.jpg)
+[![](/imagehost2/thumbs/dsc0846.jpg)](https://t.me/ponics_ru_files/16521){:target="_blank"}
 
 
 **antoxazuev** 25-09-2015
 
 Уже вроде и листочки появились.
 
-![](/imagehost2/thumbs/dsc0866.jpg)
+[![](/imagehost2/thumbs/dsc0866.jpg)](https://t.me/ponics_ru_files/16522){:target="_blank"}
 
 
 **n72black** 25-09-2015
@@ -501,7 +501,7 @@ sidebar: ponics_sidebar
 
 Всё,оставил только один росточек,самый развитый.
 
-![](/imagehost2/thumbs/dsc0868.jpg)
+[![](/imagehost2/thumbs/dsc0868.jpg)](https://t.me/ponics_ru_files/16523){:target="_blank"}
 
 
 **n72black** 25-09-2015
@@ -606,9 +606,9 @@ sidebar: ponics_sidebar
 
 Когда меряю калибр.раствор,то на приборе цифры и внизу мигает х10,а когда меряю обычную воду или раствор,то просто цифры. Не пойму ничего вообще. 
 
-![](/imagehost2/thumbs/dsc0876.jpg)
+[![](/imagehost2/thumbs/dsc0876.jpg)](https://t.me/ponics_ru_files/16524){:target="_blank"}
 
-![](/imagehost2/thumbs/dsc0877.jpg)
+[![](/imagehost2/thumbs/dsc0877.jpg)](https://t.me/ponics_ru_files/16525){:target="_blank"}
 
 
 **Gnevko** 26-09-2015
@@ -652,21 +652,21 @@ sidebar: ponics_sidebar
 
 Посчитал,что судя по таблице,то сейчас у меня уровень EC для стадии цветение). 
 
-![](/imagehost2/thumbs/screenshot20150926235151.png)
+[![](/imagehost2/thumbs/screenshot20150926235151.png)](https://t.me/ponics_ru_files/16526){:target="_blank"}
 
 
 **antoxazuev** 26-09-2015
 
 А по этой таблице всё хорошо и всё правильно у меня) но я доверяю вам,поэтому эта таблица значит верная.
 
-![](/imagehost2/thumbs/screenshot20150927000504.png)
+[![](/imagehost2/thumbs/screenshot20150927000504.png)](https://t.me/ponics_ru_files/16527){:target="_blank"}
 
 
 **antoxazuev** 28-09-2015
 
 Седьмой день. Томат.
 
-![](/imagehost2/thumbs/dsc0877gsg.jpg)
+[![](/imagehost2/thumbs/dsc0877gsg.jpg)](https://t.me/ponics_ru_files/16528){:target="_blank"}
 
 
 **n72black** 28-09-2015
@@ -714,14 +714,14 @@ sidebar: ponics_sidebar
 
 8-й день томата.
 
-![](/imagehost2/thumbs/dsc0878.jpg)
+[![](/imagehost2/thumbs/dsc0878.jpg)](https://t.me/ponics_ru_files/16529){:target="_blank"}
 
 
 **antoxazuev** 29-09-2015
 
 Начал убирать остатки ватного диска,разобрал керамзит и оторвался небольшой из корешков.. Посадил поближе к дну,уменьшил массу керамзита. Вот теперь переживаю,сможет ли он дальше развиваться?
 
-![](/imagehost2/thumbs/dsc0879.jpg)
+[![](/imagehost2/thumbs/dsc0879.jpg)](https://t.me/ponics_ru_files/16530){:target="_blank"}
 
 
 **antoxazuev** 30-09-2015
@@ -738,9 +738,9 @@ sidebar: ponics_sidebar
 
 Я поднял установку к светильнику. Теперь 28см от него росток. На подоконнике стоит. Там не жарко вроде вообще.
 
-![](/imagehost2/thumbs/dsc0881eie.jpg)
+[![](/imagehost2/thumbs/dsc0881eie.jpg)](https://t.me/ponics_ru_files/16531){:target="_blank"}
 
-![](/imagehost2/thumbs/dsc0883zkz.jpg)
+[![](/imagehost2/thumbs/dsc0883zkz.jpg)](https://t.me/ponics_ru_files/16532){:target="_blank"}
 
 
 **lidia** 01-10-2015
@@ -769,21 +769,21 @@ Ph 6,5. Измеряю каждый день пока. Из света толь�
 
 Отрегулирую ph сегодня ближе к ph6.
 
-![](/imagehost2/thumbs/dsc0885sus.jpg)
+[![](/imagehost2/thumbs/dsc0885sus.jpg)](https://t.me/ponics_ru_files/16533){:target="_blank"}
 
 
 **antoxazuev** 02-10-2015
 
 Вчера откорректировал ph до 6, немного убавил уровень раствора и поднял к свету еще на 7см. Вроде как лучше ему стало,листья поднялись,новых много лезет. Но корень пока из дна горшка не показался.
 
-![](/imagehost2/thumbs/dsc0889.jpg)
+[![](/imagehost2/thumbs/dsc0889.jpg)](https://t.me/ponics_ru_files/16534){:target="_blank"}
 
 
 **antoxazuev** 03-10-2015
 
 12-й день томату.
 
-![](/imagehost2/thumbs/dsc0891.jpg)
+[![](/imagehost2/thumbs/dsc0891.jpg)](https://t.me/ponics_ru_files/16535){:target="_blank"}
 
 
 **Gamelander** 03-10-2015
@@ -800,7 +800,7 @@ Ph 6,5. Измеряю каждый день пока. Из света толь�
 
 14-й день
 
-![](/imagehost2/thumbs/dsc0896.jpg)
+[![](/imagehost2/thumbs/dsc0896.jpg)](https://t.me/ponics_ru_files/16536){:target="_blank"}
 
 
 **lidia** 05-10-2015
@@ -829,9 +829,9 @@ Ph 6,5. Измеряю каждый день пока. Из света толь�
 
 17-й день
 
-![](/imagehost2/thumbs/dsc0910.jpg)
+[![](/imagehost2/thumbs/dsc0910.jpg)](https://t.me/ponics_ru_files/16537){:target="_blank"}
 
-![](/imagehost2/thumbs/dsc0911.jpg)
+[![](/imagehost2/thumbs/dsc0911.jpg)](https://t.me/ponics_ru_files/16538){:target="_blank"}
 
 
 **Coccinella** 08-10-2015
@@ -850,9 +850,9 @@ Ph 6,5. Измеряю каждый день пока. Из света толь�
 
 23-й день. В воскресенье заменил раствор.
 
-![](/imagehost2/thumbs/dsc0944.jpg)
+[![](/imagehost2/thumbs/dsc0944.jpg)](https://t.me/ponics_ru_files/16539){:target="_blank"}
 
-![](/imagehost2/thumbs/dsc0946rlr.jpg)
+[![](/imagehost2/thumbs/dsc0946rlr.jpg)](https://t.me/ponics_ru_files/16540){:target="_blank"}
 
 
 **lidia** 13-10-2015
@@ -900,9 +900,9 @@ Ph 6,5. Измеряю каждый день пока. Из света толь�
 
 Обжора какой)
 
-![](/imagehost2/thumbs/dsc0947.jpg)
+[![](/imagehost2/thumbs/dsc0947.jpg)](https://t.me/ponics_ru_files/16541){:target="_blank"}
 
-![](/imagehost2/thumbs/dsc0948.jpg)
+[![](/imagehost2/thumbs/dsc0948.jpg)](https://t.me/ponics_ru_files/16542){:target="_blank"}
 
 
 **lidia** 16-10-2015
@@ -944,9 +944,9 @@ Ph 6,5. Измеряю каждый день пока. Из света толь�
 
 А вроде цветочки появились,или это не те цветочки?..
 
-![](/imagehost2/thumbs/dsc0952.jpg)
+[![](/imagehost2/thumbs/dsc0952.jpg)](https://t.me/ponics_ru_files/16543){:target="_blank"}
 
-![](/imagehost2/thumbs/dsc0951.jpg)
+[![](/imagehost2/thumbs/dsc0951.jpg)](https://t.me/ponics_ru_files/16544){:target="_blank"}
 
 
 **lidia** 17-10-2015
@@ -984,7 +984,7 @@ Ph 6,5. Измеряю каждый день пока. Из света толь�
 
 Растёт не по дням, а по часам. Пьёт 1,5литра за 2 дня. Может листочки какие-нибудь отрезать? Нижние например.
 
-![](/imagehost2/thumbs/dsc0953.jpg)
+[![](/imagehost2/thumbs/dsc0953.jpg)](https://t.me/ponics_ru_files/16545){:target="_blank"}
 
 
 **n72black** 21-10-2015
@@ -1005,22 +1005,22 @@ Ph 6,5. Измеряю каждый день пока. Из света толь�
 
 Займусь пожалуй сегодня,а то много его стало)
 
-![](/imagehost2/thumbs/dsc0954.jpg)
+[![](/imagehost2/thumbs/dsc0954.jpg)](https://t.me/ponics_ru_files/16546){:target="_blank"}
 
-![](/imagehost2/thumbs/dsc0955ygy.jpg)
+[![](/imagehost2/thumbs/dsc0955ygy.jpg)](https://t.me/ponics_ru_files/16547){:target="_blank"}
 
 
 **antoxazuev** 22-10-2015
 
 Вот
 
-![](/imagehost2/thumbs/dsc0960.jpg)
+[![](/imagehost2/thumbs/dsc0960.jpg)](https://t.me/ponics_ru_files/16548){:target="_blank"}
 
-![](/imagehost2/thumbs/dsc0961.jpg)
+[![](/imagehost2/thumbs/dsc0961.jpg)](https://t.me/ponics_ru_files/16549){:target="_blank"}
 
-![](/imagehost2/thumbs/dsc0962.jpg)
+[![](/imagehost2/thumbs/dsc0962.jpg)](https://t.me/ponics_ru_files/16550){:target="_blank"}
 
-![](/imagehost2/thumbs/dsc0963.jpg)
+[![](/imagehost2/thumbs/dsc0963.jpg)](https://t.me/ponics_ru_files/16551){:target="_blank"}
 
 
 **Coccinella** 22-10-2015
@@ -1079,11 +1079,11 @@ Ph 6,5. Измеряю каждый день пока. Из света толь�
 
 Ну оставил вот так
 
-![](/imagehost2/thumbs/dsc0966.jpg)
+[![](/imagehost2/thumbs/dsc0966.jpg)](https://t.me/ponics_ru_files/16552){:target="_blank"}
 
-![](/imagehost2/thumbs/dsc0967.jpg)
+[![](/imagehost2/thumbs/dsc0967.jpg)](https://t.me/ponics_ru_files/16553){:target="_blank"}
 
-![](/imagehost2/thumbs/dsc0968.jpg)
+[![](/imagehost2/thumbs/dsc0968.jpg)](https://t.me/ponics_ru_files/16554){:target="_blank"}
 
 
 **antoxazuev** 26-10-2015
@@ -1117,7 +1117,7 @@ Ph 6,5. Измеряю каждый день пока. Из света толь�
 
 Готовый к опылению цветок должен полностью раскрыться, кончики лепестков будут загнуты в сторону плодоножки. Типа так
 
-![](/imagehost2/thumbs/2015100308122201chc.jpg)
+[![](/imagehost2/thumbs/2015100308122201chc.jpg)](https://t.me/ponics_ru_files/16555){:target="_blank"}
 
 Лучше всего опылять в первой половине светового дня. :)
 
@@ -1154,17 +1154,17 @@ Ph 6,5. Измеряю каждый день пока. Из света толь�
 
 Вот такой куст сейчас
 
-![](/imagehost2/thumbs/dsc0966ucu.jpg)
+[![](/imagehost2/thumbs/dsc0966ucu.jpg)](https://t.me/ponics_ru_files/16556){:target="_blank"}
 
-![](/imagehost2/thumbs/dsc0967coc.jpg)
+[![](/imagehost2/thumbs/dsc0967coc.jpg)](https://t.me/ponics_ru_files/16557){:target="_blank"}
 
-![](/imagehost2/thumbs/dsc0968plp.jpg)
+[![](/imagehost2/thumbs/dsc0968plp.jpg)](https://t.me/ponics_ru_files/16558){:target="_blank"}
 
-![](/imagehost2/thumbs/dsc0969.jpg)
+[![](/imagehost2/thumbs/dsc0969.jpg)](https://t.me/ponics_ru_files/16559){:target="_blank"}
 
-![](/imagehost2/thumbs/dsc0970.jpg)
+[![](/imagehost2/thumbs/dsc0970.jpg)](https://t.me/ponics_ru_files/16560){:target="_blank"}
 
-![](/imagehost2/thumbs/dsc0971.jpg)
+[![](/imagehost2/thumbs/dsc0971.jpg)](https://t.me/ponics_ru_files/16561){:target="_blank"}
 
 
 **n72black** 28-10-2015
@@ -1272,21 +1272,21 @@ Flora Series не имеет в составе бор, совсем.
 
 Ну как-то так)
 
-![](/imagehost2/thumbs/dsc0972.jpg)
+[![](/imagehost2/thumbs/dsc0972.jpg)](https://t.me/ponics_ru_files/16562){:target="_blank"}
 
-![](/imagehost2/thumbs/dsc0973.jpg)
+[![](/imagehost2/thumbs/dsc0973.jpg)](https://t.me/ponics_ru_files/16563){:target="_blank"}
 
-![](/imagehost2/thumbs/dsc0974.jpg)
+[![](/imagehost2/thumbs/dsc0974.jpg)](https://t.me/ponics_ru_files/16564){:target="_blank"}
 
-![](/imagehost2/thumbs/dsc0975.jpg)
+[![](/imagehost2/thumbs/dsc0975.jpg)](https://t.me/ponics_ru_files/16565){:target="_blank"}
 
-![](/imagehost2/thumbs/dsc0976.jpg)
+[![](/imagehost2/thumbs/dsc0976.jpg)](https://t.me/ponics_ru_files/16566){:target="_blank"}
 
-![](/imagehost2/thumbs/dsc0977.jpg)
+[![](/imagehost2/thumbs/dsc0977.jpg)](https://t.me/ponics_ru_files/16567){:target="_blank"}
 
-![](/imagehost2/thumbs/dsc0978.jpg)
+[![](/imagehost2/thumbs/dsc0978.jpg)](https://t.me/ponics_ru_files/16568){:target="_blank"}
 
-![](/imagehost2/thumbs/dsc0979.jpg)
+[![](/imagehost2/thumbs/dsc0979.jpg)](https://t.me/ponics_ru_files/16569){:target="_blank"}
 
 
 **Coccinella** 28-10-2015
@@ -1311,7 +1311,7 @@ Flora Series не имеет в составе бор, совсем.
 
 Удалил всё,на чём ничего кроме старых листьев не было. Повысил ЕС до 2,7. Света дать больше не смогу..
 
-![](/imagehost2/thumbs/dsc0973psp.jpg)
+[![](/imagehost2/thumbs/dsc0973psp.jpg)](https://t.me/ponics_ru_files/16570){:target="_blank"}
 
 
 **n72black** 29-10-2015
@@ -1351,14 +1351,14 @@ Flora Series не имеет в составе бор, совсем.
 
 Есть вот такой светильник,там 48диодов по 3 ватта. Поможет он?
 
-![](/imagehost2/thumbs/screenshot20151029124055.png)
+[![](/imagehost2/thumbs/screenshot20151029124055.png)](https://t.me/ponics_ru_files/16571){:target="_blank"}
 
 
 **antoxazuev** 29-10-2015
 
 Вот так раскрылся один цветочек
 
-![](/imagehost2/thumbs/dsc0967ojo.jpg)
+[![](/imagehost2/thumbs/dsc0967ojo.jpg)](https://t.me/ponics_ru_files/16572){:target="_blank"}
 
 
 **Cyclamech** 29-10-2015
@@ -1377,11 +1377,11 @@ Flora Series не имеет в составе бор, совсем.
 
 Мне кажется можно опылять те,которые распустились?.. Не?
 
-![](/imagehost2/thumbs/dsc0970fxf.jpg)
+[![](/imagehost2/thumbs/dsc0970fxf.jpg)](https://t.me/ponics_ru_files/16573){:target="_blank"}
 
-![](/imagehost2/thumbs/dsc0971ili.jpg)
+[![](/imagehost2/thumbs/dsc0971ili.jpg)](https://t.me/ponics_ru_files/16574){:target="_blank"}
 
-![](/imagehost2/thumbs/dsc0972pep.jpg)
+[![](/imagehost2/thumbs/dsc0972pep.jpg)](https://t.me/ponics_ru_files/16575){:target="_blank"}
 
 
 **lidia** 31-10-2015
@@ -1398,9 +1398,9 @@ Flora Series не имеет в составе бор, совсем.
 
 2 дня все цветочки в таком состоянии,за исключением 3-4. Ну во всяком случае утром и вечером,в другое время на работе я. Видимо не видать мне помидорок..
 
-![](/imagehost2/thumbs/dsc0976aua.jpg)
+[![](/imagehost2/thumbs/dsc0976aua.jpg)](https://t.me/ponics_ru_files/16576){:target="_blank"}
 
-![](/imagehost2/thumbs/dsc0975ene.jpg)
+[![](/imagehost2/thumbs/dsc0975ene.jpg)](https://t.me/ponics_ru_files/16577){:target="_blank"}
 
 
 **n72black** 06-11-2015

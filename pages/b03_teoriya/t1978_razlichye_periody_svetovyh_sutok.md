@@ -5,7 +5,7 @@ sidebar: ponics_sidebar
 
 **mikkke** 01-03-2014
 
-![](/imagehost/thumbs/500pxeuparkeriabw.jpg)
+[![](/imagehost/thumbs/500pxeuparkeriabw.jpg)](https://t.me/ponics_ru_files/12439){:target="_blank"}
 
 
 **mikkke** 01-03-2014

@@ -99,7 +99,7 @@ sidebar: ponics_sidebar
 
 Ну вот примерчик похожий, не?
 
-![](/imagehost2/thumbs/293.png)
+[![](/imagehost2/thumbs/293.png)](https://t.me/ponics_ru_files/18145){:target="_blank"}
 
 "Кроп киты", по-моему, из подобного и состоят: [SQM Crop Kit Tomato](https://app.sqm.com/PDF/SPN/CropKits/SQM-Crop_Kit_Tomato_L-RU.pdf){:target="_blank"}.
 

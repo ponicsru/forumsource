@@ -14,5 +14,5 @@ sidebar: ponics_sidebar
 
 Более подробно схемотехника
 
-[Аппаратура для измерения биоэлектрических сигналов растений.mht](https://t.me/ponics_ru_files/0){:target="_blank"}
+[Аппаратура для измерения биоэлектрических сигналов растений.mht](https://t.me/ponics_ru_files/4820){:target="_blank"}
 

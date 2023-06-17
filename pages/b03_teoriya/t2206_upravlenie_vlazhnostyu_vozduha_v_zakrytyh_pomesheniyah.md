@@ -56,7 +56,7 @@ sidebar: ponics_sidebar
 
 :o Откуда у вас такая информация? Вот график поливов
 
-![](/imagehost2/thumbs/20150214141401.png)
+[![](/imagehost2/thumbs/20150214141401.png)](https://t.me/ponics_ru_files/13653){:target="_blank"}
 
 Последний полив в обед по сути. А стены то чего у меня мокрые? Кажется я что то о себе не знаю ... :D
 
@@ -65,7 +65,7 @@ sidebar: ponics_sidebar
 
 А вот влажность в будуаре (верхний график) и субстрата (нижний, выше приведенный график поливов четко просматривается)
 
-![](/imagehost2/thumbs/20150214141726.png)
+[![](/imagehost2/thumbs/20150214141726.png)](https://t.me/ponics_ru_files/13654){:target="_blank"}
 
 
 **Gnevko** 14-02-2015

@@ -128,7 +128,7 @@ sidebar: ponics_sidebar
 
 Не в тему пирамиды, но думаю длякартошкиоптимальной будет такая система аэропоники.
 
-[![](/attachimages/5317_kartofel.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/5317_kartofel.jpg)](https://t.me/ponics_ru_files/4729){:target="_blank"}
 
 **otec** 23-01-2011
 
@@ -210,7 +210,7 @@ sidebar: ponics_sidebar
 
 И еще немного материала во вложении.
 
-[dokagene.zip](https://t.me/ponics_ru_files/0){:target="_blank"}
+[dokagene.zip](https://t.me/ponics_ru_files/4730){:target="_blank"}
 
 **otec** 23-01-2011
 
@@ -379,13 +379,13 @@ Coccinella, спасибо за ответ про цветение. А я в п�
 
 **tsalsh** 18-03-2011
 
-![](/imagehost/thumbs/growingpotatosinbags20101.jpg)
+[![](/imagehost/thumbs/growingpotatosinbags20101.jpg)](https://t.me/ponics_ru_files/4731){:target="_blank"}
 
-![](/imagehost/thumbs/growingpotatosinbags20103.jpg)
+[![](/imagehost/thumbs/growingpotatosinbags20103.jpg)](https://t.me/ponics_ru_files/4732){:target="_blank"}
 
-[![](/attachimages/6308_growing-potatos-in-bags-2010-4.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/6308_growing-potatos-in-bags-2010-4.jpg)](https://t.me/ponics_ru_files/4733){:target="_blank"}
 
-[![](/attachimages/6310_growing-potatoes-in-bags-7.jpg)](https://t.me/ponics_ru_files/1){:target="_blank"}
+[![](/attachimages/6310_growing-potatoes-in-bags-7.jpg)](https://t.me/ponics_ru_files/4734){:target="_blank"}
 
 **Mole_Garden** 18-03-2011
 
@@ -775,28 +775,28 @@ Tsalsh, Вы наверно, не в курсе :) В общем и целом �
 
 Итак : укрепляем картофелину в поддон цветочного горшка...
 
-![](/imagehost/thumbs/dsc04338vdv.jpg)
+[![](/imagehost/thumbs/dsc04338vdv.jpg)](https://t.me/ponics_ru_files/4735){:target="_blank"}
 
 
 **Юка** 26-08-2012
 
  Запускаем установку с поливом картофелины "салатным" раствором по 15 мин. через 15-2 часа
 
-![](/imagehost/thumbs/dsc04342ziz.jpg)
+[![](/imagehost/thumbs/dsc04342ziz.jpg)](https://t.me/ponics_ru_files/4736){:target="_blank"}
 
 
 **Юка** 26-08-2012
 
 Через три недели получаем замечательную корневую...
 
-![](/imagehost/thumbs/dsc04343kvk.jpg)
+[![](/imagehost/thumbs/dsc04343kvk.jpg)](https://t.me/ponics_ru_files/4737){:target="_blank"}
 
 
 **Юка** 26-08-2012
 
  И тут на сцене появляется тля, которой очень понравились вершки, &gt;:D и из-за которой эксперимент на стадии &gt;:( что делать ???..., наверно, посажу ещё раз и пусть эта зараза полопается...
 
-![](/imagehost/thumbs/dsc04345bub.jpg)
+[![](/imagehost/thumbs/dsc04345bub.jpg)](https://t.me/ponics_ru_files/4738){:target="_blank"}
 
 
 **Coccinella** 26-08-2012

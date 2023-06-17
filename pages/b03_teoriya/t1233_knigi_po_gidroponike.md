@@ -101,7 +101,7 @@ aivar, спасибо!
 
 Проверяйте, выкладывайте, читайте...
 
-[Томат индетерминантный.pdf](https://t.me/ponics_ru_files/0){:target="_blank"}
+[Томат индетерминантный.pdf](https://t.me/ponics_ru_files/6532){:target="_blank"}
 
 **Coccinella** 03-04-2012
 
@@ -198,7 +198,7 @@ GROSS INCOME COMPARISON FOR HYDROPONIC TOMATO PRODUCTION IN AUTOPOT® AND ROCKWO
 
 Вот пример для бахчевых и нейтрального субстрата:
 
-![](/imagehost2/thumbs/20170523191519.png)
+[![](/imagehost2/thumbs/20170523191519.png)](https://t.me/ponics_ru_files/6533){:target="_blank"}
 
 
 **Cyclamech** 23-05-2017

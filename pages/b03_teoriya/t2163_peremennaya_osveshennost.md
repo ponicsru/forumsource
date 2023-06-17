@@ -7,7 +7,7 @@ sidebar: ponics_sidebar
 
 Осилим ли такое, есть ли смысл заморачиваться? Если применять леды то эффективность еще выше будет?
 
-[doc738.pdf](https://t.me/ponics_ru_files/0){:target="_blank"}
+[doc738.pdf](https://t.me/ponics_ru_files/13469){:target="_blank"}
 
 **OLIVER** 14-12-2014
 
@@ -18,13 +18,13 @@ sidebar: ponics_sidebar
 
 Вот еще чего нарыл 
 
-[![](/attachimages/17381_01.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17381_01.jpg)](https://t.me/ponics_ru_files/13470){:target="_blank"}
 
-[![](/attachimages/17383_02.jpg)](https://t.me/ponics_ru_files/1){:target="_blank"}
+[![](/attachimages/17383_02.jpg)](https://t.me/ponics_ru_files/13471){:target="_blank"}
 
-[![](/attachimages/17385_03.jpg)](https://t.me/ponics_ru_files/2){:target="_blank"}
+[![](/attachimages/17385_03.jpg)](https://t.me/ponics_ru_files/13472){:target="_blank"}
 
-[![](/attachimages/17387_04.jpg)](https://t.me/ponics_ru_files/3){:target="_blank"}
+[![](/attachimages/17387_04.jpg)](https://t.me/ponics_ru_files/13473){:target="_blank"}
 
 **Coccinella** 14-12-2014
 
@@ -78,7 +78,7 @@ sidebar: ponics_sidebar
 
  :-\
 
-[![](/attachimages/17389_82c2cf21.png)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17389_82c2cf21.png)](https://t.me/ponics_ru_files/13474){:target="_blank"}
 
 **OLIVER** 15-12-2014
 
@@ -186,7 +186,7 @@ sidebar: ponics_sidebar
 
 так, что за загадочный зверек этот фт/м2 если он не фот? в чем измеряется? 
 
-[![](/attachimages/17393_eff1125a.png)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17393_eff1125a.png)](https://t.me/ponics_ru_files/13475){:target="_blank"}
 
 **Strangeman** 06-01-2015
 
@@ -236,7 +236,7 @@ sidebar: ponics_sidebar
 
 Вот ящё нарыл в глубинах древности :D
 
-[![](/attachimages/17581_Рисунок111.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17581_Рисунок111.jpg)](https://t.me/ponics_ru_files/13476){:target="_blank"}
 
 **Coccinella** 15-01-2015
 
@@ -300,7 +300,7 @@ sidebar: ponics_sidebar
 
 вот почти совсем свежее, есче не остыло :D это для водорослей правда :(
 
-[![](/attachimages/17583_Рисунок222.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17583_Рисунок222.jpg)](https://t.me/ponics_ru_files/13477){:target="_blank"}
 
 **Strangeman** 17-01-2015
 
@@ -337,9 +337,9 @@ PS. Однако, это во втором абзаце, а в первом пе
 
 Еще патент , 1969 год и речь наверно идет о мощности ламп накаливания 
 
-[![](/attachimages/17606_00000001.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17606_00000001.jpg)](https://t.me/ponics_ru_files/13478){:target="_blank"}
 
-[![](/attachimages/17608_00000002.jpg)](https://t.me/ponics_ru_files/1){:target="_blank"}
+[![](/attachimages/17608_00000002.jpg)](https://t.me/ponics_ru_files/13479){:target="_blank"}
 
 **u-Art** 29-01-2015
 
@@ -367,11 +367,11 @@ PS. Однако, это во втором абзаце, а в первом пе
 
 Сомнения из-за того, что у Кота много диодов светит в импульсном режиме на малое количество листьев и расположены они очень близко к растению.
 
-[![](/attachimages/17655_DSCF0988.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17655_DSCF0988.jpg)](https://t.me/ponics_ru_files/13480){:target="_blank"}
 
-[![](/attachimages/17657_DSCF0990.jpg)](https://t.me/ponics_ru_files/1){:target="_blank"}
+[![](/attachimages/17657_DSCF0990.jpg)](https://t.me/ponics_ru_files/13481){:target="_blank"}
 
-[![](/attachimages/17659_DSCF0991.jpg)](https://t.me/ponics_ru_files/2){:target="_blank"}
+[![](/attachimages/17659_DSCF0991.jpg)](https://t.me/ponics_ru_files/13482){:target="_blank"}
 
 **Strangeman** 29-01-2015
 
@@ -462,9 +462,9 @@ PS. Однако, это во втором абзаце, а в первом пе
 
 Как вариант, позже поменять местами с выставлением одинаковой мощности.
 
-[![](/attachimages/17663_DSCF0992.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17663_DSCF0992.jpg)](https://t.me/ponics_ru_files/13483){:target="_blank"}
 
-[![](/attachimages/17665_DSCF0993.jpg)](https://t.me/ponics_ru_files/1){:target="_blank"}
+[![](/attachimages/17665_DSCF0993.jpg)](https://t.me/ponics_ru_files/13484){:target="_blank"}
 
 **u-Art** 30-01-2015
 
@@ -515,9 +515,9 @@ PS. Однако, это во втором абзаце, а в первом пе
 
 Сегодня питомцы спали 2 часа.
 
-[![](/attachimages/17667_DSCF0999.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17667_DSCF0999.jpg)](https://t.me/ponics_ru_files/13485){:target="_blank"}
 
-[![](/attachimages/17669_DSCF1000.jpg)](https://t.me/ponics_ru_files/1){:target="_blank"}
+[![](/attachimages/17669_DSCF1000.jpg)](https://t.me/ponics_ru_files/13486){:target="_blank"}
 
 **Vad** 31-01-2015
 
@@ -556,15 +556,15 @@ PS. Однако, это во втором абзаце, а в первом пе
 
 Огурец живет в самом низу на импровизированном увлажнителе, над ним пара красных диодов, синие пришлось прикрыть, ибо высота растения от субстрата 5 см при 5 настоящих листьях.
 
-[![](/attachimages/17671_DSCF0994.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17671_DSCF0994.jpg)](https://t.me/ponics_ru_files/13487){:target="_blank"}
 
-[![](/attachimages/17673_DSCF0995.jpg)](https://t.me/ponics_ru_files/1){:target="_blank"}
+[![](/attachimages/17673_DSCF0995.jpg)](https://t.me/ponics_ru_files/13488){:target="_blank"}
 
-[![](/attachimages/17675_DSCF0996.jpg)](https://t.me/ponics_ru_files/2){:target="_blank"}
+[![](/attachimages/17675_DSCF0996.jpg)](https://t.me/ponics_ru_files/13489){:target="_blank"}
 
-[![](/attachimages/17677_DSCF0997.jpg)](https://t.me/ponics_ru_files/3){:target="_blank"}
+[![](/attachimages/17677_DSCF0997.jpg)](https://t.me/ponics_ru_files/13490){:target="_blank"}
 
-[![](/attachimages/17679_DSCF0998.jpg)](https://t.me/ponics_ru_files/4){:target="_blank"}
+[![](/attachimages/17679_DSCF0998.jpg)](https://t.me/ponics_ru_files/13491){:target="_blank"}
 
 **Vad** 31-01-2015
 
@@ -601,9 +601,9 @@ PS. Однако, это во втором абзаце, а в первом пе
 
 Импульсное освещение (&gt; 0.5 MHz) можно использовать, если готовы потратиться на втрое большее количество диодов, ардуину, мосфеты и время на пайку, в качестве бонуса - нет необходимости в алюминиевых профилях для радиаторов.
 
-[![](/attachimages/17683_DSCF1003.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17683_DSCF1003.jpg)](https://t.me/ponics_ru_files/13492){:target="_blank"}
 
-[![](/attachimages/17685_DSCF1004.jpg)](https://t.me/ponics_ru_files/1){:target="_blank"}
+[![](/attachimages/17685_DSCF1004.jpg)](https://t.me/ponics_ru_files/13493){:target="_blank"}
 
 **Vad** 01-02-2015
 
@@ -630,9 +630,9 @@ PS. Однако, это во втором абзаце, а в первом пе
 
 В импульсном очень сильное вытягивание, нет намека на репку, явно нехватка освещения.
 
-[![](/attachimages/17689_DSCF1003.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17689_DSCF1003.jpg)](https://t.me/ponics_ru_files/13494){:target="_blank"}
 
-[![](/attachimages/17691_DSCF1004.jpg)](https://t.me/ponics_ru_files/1){:target="_blank"}
+[![](/attachimages/17691_DSCF1004.jpg)](https://t.me/ponics_ru_files/13495){:target="_blank"}
 
 **u-Art** 03-02-2015
 
@@ -757,9 +757,9 @@ PS. Однако, это во втором абзаце, а в первом пе
 
 В задумке еще устроить для растения 2-3 цикла в сутки, но пока нет свободных таймеров. 
 
-[![](/attachimages/17700_DSCF1009.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17700_DSCF1009.jpg)](https://t.me/ponics_ru_files/13496){:target="_blank"}
 
-[![](/attachimages/17702_DSCF1011.jpg)](https://t.me/ponics_ru_files/1){:target="_blank"}
+[![](/attachimages/17702_DSCF1011.jpg)](https://t.me/ponics_ru_files/13497){:target="_blank"}
 
 **Strangeman** 06-02-2015
 
@@ -790,7 +790,7 @@ PS. Однако, это во втором абзаце, а в первом пе
 
 Тесновато было двум редискам в стаканчике, на фото та, которая была повыше в стакане с "постоянкой", немного задушила своими корнями соседку, у которой длина корня почти в 2 раза меньше и репка более вытянутая.
 
-[![](/attachimages/17704_DSCF1013.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17704_DSCF1013.jpg)](https://t.me/ponics_ru_files/13498){:target="_blank"}
 
 **OLIVER** 06-02-2015
 
@@ -970,9 +970,9 @@ PS. Однако, это во втором абзаце, а в первом пе
 
 Освещение круглосуточное, завтра будет 1 час обеденного сна.
 
-[![](/attachimages/17786_DSCF1016.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17786_DSCF1016.jpg)](https://t.me/ponics_ru_files/13499){:target="_blank"}
 
-[![](/attachimages/17788_DSCF1015.jpg)](https://t.me/ponics_ru_files/1){:target="_blank"}
+[![](/attachimages/17788_DSCF1015.jpg)](https://t.me/ponics_ru_files/13500){:target="_blank"}
 
 **u-Art** 14-02-2015
 
@@ -984,9 +984,9 @@ PS. Однако, это во втором абзаце, а в первом пе
 
 Предполагаю, с увеличением темнового периода, разница начнет проявляться сильнее, на сегодня, сон 5 часов.
 
-[![](/attachimages/17823_DSCF1019.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17823_DSCF1019.jpg)](https://t.me/ponics_ru_files/13501){:target="_blank"}
 
-[![](/attachimages/17825_DSCF1018.jpg)](https://t.me/ponics_ru_files/1){:target="_blank"}
+[![](/attachimages/17825_DSCF1018.jpg)](https://t.me/ponics_ru_files/13502){:target="_blank"}
 
 **OLIVER** 17-02-2015
 
@@ -1026,9 +1026,9 @@ P.S. О каком казанском коте идет тут речь? Дай�
 
 Уменьшать разницу потребления энергии менее 50% и продолжать эксперимент не вижу смысла, ибо эффект может быть искаженным, из-за индивидуальных особенностей растения.
 
-[![](/attachimages/17833_DSCF1034.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17833_DSCF1034.jpg)](https://t.me/ponics_ru_files/13503){:target="_blank"}
 
-[![](/attachimages/17835_DSCF1035.jpg)](https://t.me/ponics_ru_files/1){:target="_blank"}
+[![](/attachimages/17835_DSCF1035.jpg)](https://t.me/ponics_ru_files/13504){:target="_blank"}
 
 **Coccinella** 17-02-2015
 
@@ -1128,9 +1128,9 @@ tosman
 
 Под светильник поставил 19.02.2015 в 16 часов по Москве.
 
-[![](/attachimages/17839_Фото-0073.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17839_Фото-0073.jpg)](https://t.me/ponics_ru_files/13505){:target="_blank"}
 
-[![](/attachimages/17841_Фото-0074.jpg)](https://t.me/ponics_ru_files/1){:target="_blank"}
+[![](/attachimages/17841_Фото-0074.jpg)](https://t.me/ponics_ru_files/13506){:target="_blank"}
 
 **u-Art** 18-02-2015
 
@@ -1148,9 +1148,9 @@ tosman
 
 Чет смотрю на фото и не радуют они меня, все 6 растений стоят под одним светильником, расстояние крайних до светильника все на пару сантиметров больше чем центральных, но вот не как не могу понять почему так центральный сильно вытянутый на втором фото и запаздывает с развитием :-\ хотя на первом фото по центру растущий выглядит гораздо лучше, и вообще почему края лучше развиваются чем середина, вроде как в центре освещенность не на много но выше :-\
 
-[![](/attachimages/17860_HPIM2990.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17860_HPIM2990.jpg)](https://t.me/ponics_ru_files/13507){:target="_blank"}
 
-[![](/attachimages/17862_HPIM2990 (2).jpg)](https://t.me/ponics_ru_files/1){:target="_blank"}
+[![](/attachimages/17862_HPIM2990 (2).jpg)](https://t.me/ponics_ru_files/13508){:target="_blank"}
 
 **Gnevko** 22-02-2015
 
@@ -1264,7 +1264,7 @@ tosman
 
 Так после диода будет половина синусоиды, что соответственно приведет к нарастанию тока и спаду плавному, фронты вообще будут отсутствовать и вообще шняга получиться 
 
-[![](/attachimages/17865_sinusoida2.gif)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17865_sinusoida2.gif)](https://t.me/ponics_ru_files/13509){:target="_blank"}
 
 **tosman** 25-02-2015
 
@@ -1297,9 +1297,9 @@ tosman
 
 А что измениться, как плавно нарастать так и спадать будет яркость светодиода, это похоже на то как отрываешь водопроводный кран много оборотный нельзя мгновенно отрыть воду на полную, а потом так же закрыть, происходит это плавно, т.е. при таком питании светодиод будет плавно разгораться и плавно тухнуть, а в идеале надо трах-бах и все ;D картинка 2 
 
-[![](/attachimages/17867_2poluperiod.gif)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17867_2poluperiod.gif)](https://t.me/ponics_ru_files/13510){:target="_blank"}
 
-[![](/attachimages/17869_b1f45d.gif)](https://t.me/ponics_ru_files/1){:target="_blank"}
+[![](/attachimages/17869_b1f45d.gif)](https://t.me/ponics_ru_files/13511){:target="_blank"}
 
 **Strangeman** 25-02-2015
 
@@ -1334,19 +1334,19 @@ tosman
 
 Ботвы практически нет, но кое как наращивает плод. Высота шкалы на шприце 50 мм.
 
-[![](/attachimages/17887_DSCF1069.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17887_DSCF1069.jpg)](https://t.me/ponics_ru_files/13512){:target="_blank"}
 
 **OLIVER** 26-02-2015
 
 первые две фотки постоянный режим освещения, вторые две переменный, посадка 21.02.2015г.
 
-[![](/attachimages/17913_Фото-0019.jpg)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/17913_Фото-0019.jpg)](https://t.me/ponics_ru_files/13513){:target="_blank"}
 
-[![](/attachimages/17915_Фото-0018.jpg)](https://t.me/ponics_ru_files/1){:target="_blank"}
+[![](/attachimages/17915_Фото-0018.jpg)](https://t.me/ponics_ru_files/13514){:target="_blank"}
 
-[![](/attachimages/17917_Фото-0017.jpg)](https://t.me/ponics_ru_files/2){:target="_blank"}
+[![](/attachimages/17917_Фото-0017.jpg)](https://t.me/ponics_ru_files/13515){:target="_blank"}
 
-[![](/attachimages/17919_Фото-0016.jpg)](https://t.me/ponics_ru_files/3){:target="_blank"}
+[![](/attachimages/17919_Фото-0016.jpg)](https://t.me/ponics_ru_files/13516){:target="_blank"}
 
 **tosman** 27-02-2015
 

@@ -267,7 +267,7 @@ HPS 600w Initial Lumens: 95,000
 
 [Digilux Bulb 600 HPS &amp; MH TEST &amp; Product Review](http://www.youtube.com/watch?v=b43vBjFIMlA#ws){:target="_blank"}
 
-[![](/attachimages/3453_DigiLux-600.png)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/3453_DigiLux-600.png)](https://t.me/ponics_ru_files/4280){:target="_blank"}
 
 **ProRus** 12-11-2010
 
@@ -287,7 +287,7 @@ HPS 600w Initial Lumens: 95,000
 
 Извините если не в тему...
 
-[![](/attachimages/3645_quantum_ballast.png)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/3645_quantum_ballast.png)](https://t.me/ponics_ru_files/4281){:target="_blank"}
 
 **valery** 12-11-2010
 
@@ -334,7 +334,7 @@ Philips, Sylvania, GE MH - 400 Watt на всякий пожарный... Вдр
 
 Что скажите по этому поводу?
 
-[![](/attachimages/3648_LK600.1.png)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/3648_LK600.1.png)](https://t.me/ponics_ru_files/4282){:target="_blank"}
 
 **valery** 12-11-2010
 
@@ -390,7 +390,7 @@ HiLUX GRO 600 watt HPS Bulb от Ushio - на картинке слева.
 
 Digilux производит C.A.P., вроде как надежная компания. А где их реально производят можно только догадываться.
 
-[![](/attachimages/3658_spectral.png)](https://t.me/ponics_ru_files/0){:target="_blank"}
+[![](/attachimages/3658_spectral.png)](https://t.me/ponics_ru_files/4283){:target="_blank"}
 
 **ProRus** 14-11-2010
 

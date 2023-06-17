@@ -417,7 +417,7 @@ https://kartaslov.ru/значение-слова/засаливание
 
 **siv237** 04-07-2018
 
-![](/imagehost2/thumbs/182a11ba9d348de805245c834a1d88c4.jpg)
+[![](/imagehost2/thumbs/182a11ba9d348de805245c834a1d88c4.jpg)](https://t.me/ponics_ru_files/19437){:target="_blank"}
 
 
 **simiko** 04-07-2018
