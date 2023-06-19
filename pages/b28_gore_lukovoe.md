@@ -109,5 +109,3 @@ sidebar: ponics_sidebar
 
 [Какой сорт лучше?](b28_gore_lukovoe/t2877_kakoi_sort_luchshe.html)
 
-[Just want to say Howzit. I now registered](b28_gore_lukovoe/t5137_just_want_to_say_howzit_i_now_registered.html)
-

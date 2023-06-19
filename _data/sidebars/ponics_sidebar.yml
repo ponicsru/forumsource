@@ -1,7 +1,7 @@
 entries:
 - title: Архив форума  
   folders:
-  - title: Разделы 
+  - title: Архив форума 
     output: web
     folderitems:
     - title: Новости Ponics

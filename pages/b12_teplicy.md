@@ -133,5 +133,3 @@ sidebar: ponics_sidebar
 
 [dwc , плоты и возможности](b12_teplicy/t5384_dwc__ploty_i_vozmozhnosti.html)
 
-[Вся информация о правильном обустройстве фасада дома в удобном онлайн-справочнике на сайте "Pro-fasa](b12_teplicy/t5385_vsya_informaciya_o_pravilnom_obustroistve_fasada_doma_v_udobnom_onlainspravochnike_na_saite_profasa.html)
-

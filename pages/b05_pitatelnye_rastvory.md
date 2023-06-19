@@ -291,10 +291,6 @@ sidebar: ponics_sidebar
 
 [Как приготовить концентраты удобрений](b05_pitatelnye_rastvory/t4663_kak_prigotovit_koncentraty_udobrenii.html)
 
-[meilleure pharmacie en ligne](b05_pitatelnye_rastvory/t5253_meilleure_pharmacie_en_ligne.html)
-
-[Article sur Viagra 150mg](b05_pitatelnye_rastvory/t5258_article_sur_viagra_150mg.html)
-
 [Аскорбиновая кислота или лимонная кислота в питательном растворе](b05_pitatelnye_rastvory/t5358_askorbinovaya_kislota_ili_limonnaya_kislota_v_pitatelnom_rastvore.html)
 
 [Растворение Суперфосфата в воде](b05_pitatelnye_rastvory/t5360_rastvorenie_superfosfata_v_vode.html)
