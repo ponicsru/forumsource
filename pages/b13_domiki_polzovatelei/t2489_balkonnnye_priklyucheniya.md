@@ -6144,17 +6144,17 @@ https://youtu.be/evtK9g6jZBo
 
 **allex_step** 26-10-2018
 
-[size=1em]как это у ардуины сети нет??? а МЕГА с ЕСП8266 на борту (2-в-1)?[/size]
+как это у ардуины сети нет??? а МЕГА с ЕСП8266 на борту (2-в-1)?
 
-[size=1em][https://robotdyn.com/mega-wifi-r3-atmega2560-esp8266-flash-32mb-usb-ttl-ch340g-micro-usb.html](https://robotdyn.com/mega-wifi-r3-atmega2560-esp8266-flash-32mb-usb-ttl-ch340g-micro-usb.html){:target="_blank"}[/size]
+[https://robotdyn.com/mega-wifi-r3-atmega2560-esp8266-flash-32mb-usb-ttl-ch340g-micro-usb.html](https://robotdyn.com/mega-wifi-r3-atmega2560-esp8266-flash-32mb-usb-ttl-ch340g-micro-usb.html){:target="_blank"}
 
-[size=2px]https://youtu.be/L-zuPyn6p0A[/size]
+https://youtu.be/L-zuPyn6p0A
 
-[size=1em]а на [https://thingspeak.com](https://thingspeak.com){:target="_blank"} можна запихуевать какие-угодно данные и извращаться с ними насколько только хватит хвантазии[/size]
+а на [https://thingspeak.com](https://thingspeak.com){:target="_blank"} можна запихуевать какие-угодно данные и извращаться с ними насколько только хватит хвантазии
 
-[size=2px][https://youtu.be/8jPTpgleD8k](https://youtu.be/8jPTpgleD8k){:target="_blank"}[/size]
+[https://youtu.be/8jPTpgleD8k](https://youtu.be/8jPTpgleD8k){:target="_blank"}
 
-[size=2px][https://youtu.be/iwbIAR7Bx-c](https://youtu.be/iwbIAR7Bx-c){:target="_blank"}[/size]
+[https://youtu.be/iwbIAR7Bx-c](https://youtu.be/iwbIAR7Bx-c){:target="_blank"}
 
 
 **Wildcat** 26-10-2018
@@ -6534,7 +6534,7 @@ https://photos.app.goo.gl/FHoA6CDsPn1M64iL6
 
 у злаковых жесткие зерна, а никак не проростки
 
-[font=verdana]зы горчицу я просто даже на запах не переношу... :-[ пробовал проращивать - тот же результат[/font]
+зы горчицу я просто даже на запах не переношу... :-[ пробовал проращивать - тот же результат
 
 ![](http://ratmania.ru/wp-content/uploads/2016/05/cress-253795_960_7201.jpg)![](https://www.colourbox.dk/preview/3679444-hvede-froe-med-groenne-spirer.jpg)![](http://livefreelife.ru/scomment/_user-img/6974_1.jpg)
 

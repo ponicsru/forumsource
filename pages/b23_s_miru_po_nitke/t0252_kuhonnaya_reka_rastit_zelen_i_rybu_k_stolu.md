@@ -45,7 +45,7 @@ Bel-Air — это попытка повысить скорость очистк
 
 Данное нехитрое устройство демонстрировалось на ряде выставок по обе стороны Атлантики.Ну а новинку — Local River – французские дизайнеры представят публике 25 апреля в нью-йоркской галерее Artists Space. 
 
-[right]Источник: [Membrana](http://www.membrana.ru/articles/inventions/2008/04/14/155900.html?wire=mainsection){:target="_blank"}[/right]
+Источник: [Membrana](http://www.membrana.ru/articles/inventions/2008/04/14/155900.html?wire=mainsection){:target="_blank"}
 
 
 **Mole_Garden** 20-08-2009

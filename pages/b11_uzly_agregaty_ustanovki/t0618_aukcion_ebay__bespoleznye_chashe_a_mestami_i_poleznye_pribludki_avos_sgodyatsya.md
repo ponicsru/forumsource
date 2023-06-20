@@ -11,9 +11,9 @@ sidebar: ponics_sidebar
 
 -------------------------------------------------------------------------------
 
-[size=12pt]Отзыв пользователя WERDNA
+Отзыв пользователя WERDNA
 
-[/size]HANNA HI98129 98129 DIGITAL pH EC TDS TESTER METER
+HANNA HI98129 98129 DIGITAL pH EC TDS TESTER METER
 
 [Ссылка на прибор ](http://cgi.ebay.com/HANNA-HI98129-98129-DIGITAL-pH-EC-TDS-TESTER-METER_W0QQitemZ310171534109QQihZ021QQcategoryZ294QQssPageNameZWDVWQQrdZ1QQcmdZViewItem){:target="_blank"}
 
@@ -25,7 +25,7 @@ CLONEX ROOTING HORMONE GEL FOR CUTTINGS 50ML
 
 ![](http://forum.ponics.ru/index.php?action=dlattach;topic=618.0;attach=3424;image)
 
-[size=12pt]Отзыв пользователя valery[/size]
+Отзыв пользователя valery
 
 Digital pH Meter Tester LCD Monitor +2 Buffer Solutions
 

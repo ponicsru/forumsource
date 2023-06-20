@@ -23,6 +23,6 @@ sidebar: ponics_sidebar
 
 p.s. спасибо Hrun за наводку на материал.
 
-[right]Источник:[3D News ](http://"http://www.3dnews.ru/news/izmeneniya_klimata_zaderzhat_belie_krishi_i_vodorosli_na_domah"){:target="_blank"}Денис Борн[/right]
+Источник:[3D News ](http://"http://www.3dnews.ru/news/izmeneniya_klimata_zaderzhat_belie_krishi_i_vodorosli_na_domah"){:target="_blank"}Денис Борн
 
 

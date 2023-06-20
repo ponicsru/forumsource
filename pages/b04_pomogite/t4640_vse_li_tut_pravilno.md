@@ -76,9 +76,9 @@ Ph всегда держится в районе 6-6,5, как раствора 
 
 **allex_step** 16-03-2019
 
-[size=1em][https://leroymerlin.ru/product/udobrenie-ammiachnaya-selitra-1-kg-12692593/](https://leroymerlin.ru/product/udobrenie-ammiachnaya-selitra-1-kg-12692593/){:target="_blank"}[/size]
+[https://leroymerlin.ru/product/udobrenie-ammiachnaya-selitra-1-kg-12692593/](https://leroymerlin.ru/product/udobrenie-ammiachnaya-selitra-1-kg-12692593/){:target="_blank"}
 
-[size=1em][https://gazonov.com/item/546-ammiachnaya-selitra-1kg](https://gazonov.com/item/546-ammiachnaya-selitra-1kg){:target="_blank"}[/size]
+[https://gazonov.com/item/546-ammiachnaya-selitra-1kg](https://gazonov.com/item/546-ammiachnaya-selitra-1kg){:target="_blank"}
 
 
 **siv237** 16-03-2019

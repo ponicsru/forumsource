@@ -632,15 +632,15 @@ F1 Фруктовый - 1,0ЕС
 
 **allex_step** 12-03-2019
 
-> [size=1em]показания явно отличаются более чем на 1[/size]
+> показания явно отличаются более чем на 1
 
-[size=1em]верхняя ИМХО выглядит на ниже 7-ми, нижняя - на чуть выше 6-ти[/size]
+верхняя ИМХО выглядит на ниже 7-ми, нижняя - на чуть выше 6-ти
 
-> [size=1em]Калибровка слетает при этом или нет?[/size]
+> Калибровка слетает при этом или нет?
 
-по причины замены батарейки - [size=1em]нет (регулировка ведь отверткой?)[/size]
+по причины замены батарейки - нет (регулировка ведь отверткой?)
 
-[size=1em]а по причине долгого неиспользования - вполне могла съехать (или хранили правильно? (тут не про "в сухом прохладном", а про раствор 3M KCl))[/size]
+а по причине долгого неиспользования - вполне могла съехать (или хранили правильно? (тут не про "в сухом прохладном", а про раствор 3M KCl))
 
 
 **Likl** 12-03-2019
@@ -1034,13 +1034,13 @@ F1 Фруктовый
 
 **allex_step** 31-03-2019
 
-[size=2]ну не провоцируйте в сторону гугля............
+ну не провоцируйте в сторону гугля............
 
 [http://molbiol.ru/solution/01_03.html](http://molbiol.ru/solution/01_03.html){:target="_blank"}
 
 [http://poolmasters.ru/index.php/stati/ob-oborudovanii/739-kak-ustroen-i-rabotaet-elektrod-ph](http://poolmasters.ru/index.php/stati/ob-oborudovanii/739-kak-ustroen-i-rabotaet-elektrod-ph){:target="_blank"}
 
-[https://olkpeace.org/forum/viewtopic.php?f=11&amp;t=60483&amp;start=225#p4391699](https://olkpeace.org/forum/viewtopic.php?f=11&amp;t=60483&amp;start=225#p4391699){:target="_blank"}[/size]
+[https://olkpeace.org/forum/viewtopic.php?f=11&amp;t=60483&amp;start=225#p4391699](https://olkpeace.org/forum/viewtopic.php?f=11&amp;t=60483&amp;start=225#p4391699){:target="_blank"}
 
 
 **serge mat** 01-04-2019

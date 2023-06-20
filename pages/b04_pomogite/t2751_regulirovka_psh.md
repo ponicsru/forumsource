@@ -82,7 +82,7 @@ sidebar: ponics_sidebar
 
 Temporary hardness is a type of water hardness caused by the presence of dissolved carbonate minerals (calcium carbonate and magnesium carbonate). When dissolved, these minerals deliver calcium and magnesium cations (Ca2+, Mg2+) and carbonate and bicarbonate anions (CO32-, HCO3-). The optimal pH level for hydroponics is 5.5. The pH of the water will be too high if the irrigation water contains substantial quantities of carbonate and bicarbonate (CO32-, HCO3-). This is often the case when well water is used. This water should therefore be treated with acid to neutralise the HCO3- and to lower the pH of the nutrient solution. The quantity of acid to be added is determined by the quantity of HCO3- present.
 
-[size=8pt]Временная жёсткость воды обусловлена присутствием в ней карбонатов кальция и магния, представленных в растворённом виде катионами кальция и магния, а также карбонат и бикарбонат анионами. Оптимальный pH для гидропоники ~ 5,5, однако при наличии достаточного количества карбонат и бикарбонат анионов в исходной воде её pH окажется чрезмерно велик. pH исходной воды можно понизить кислотой, нейтрализовав гидрокарбонатный анион. Количество потребной кислоты определяется количеством гидрокарбонатов в исходной воде.[/size]
+Временная жёсткость воды обусловлена присутствием в ней карбонатов кальция и магния, представленных в растворённом виде катионами кальция и магния, а также карбонат и бикарбонат анионами. Оптимальный pH для гидропоники ~ 5,5, однако при наличии достаточного количества карбонат и бикарбонат анионов в исходной воде её pH окажется чрезмерно велик. pH исходной воды можно понизить кислотой, нейтрализовав гидрокарбонатный анион. Количество потребной кислоты определяется количеством гидрокарбонатов в исходной воде.
 
 When an acid is added to the water, the bicarbonate will be neutralised by the proton of the acid and the pH of the solution will decrease. Calcium (or magnesium) will remain available for plant uptake, and the anion of the acid will remain dissolved in the water.
 
@@ -90,7 +90,7 @@ Ca2+ + 2HCO3- + 2HNO3 &#8651; Ca2+ + 2CO2 + 2H2O + 2NO3-
 
 Nitric acid is commonly used for this purpose, but phosphoric acid and its derivatives like urea phosphate could also be used. With the addition of more acid, the concentration of acid associated anions in the solution, like nitrate and phosphate, will increase. However, these quantities should not exceed the desired concentrations for the nutrient solution. Since these anion concentrations in the nutrient solutions will limit the quantity of acid that can be added, the quantity of HCO3- that can be neutralised is limited. Consequently, the initial concentration of HCO3- in the irrigation water is a major quality issue. Treatment of bicarbonate with an acid releases carbon dioxide (CO2) and water. CO2 must be allowed to escape from the nutrient solution; if not, the pH of the solution will not be lowered and will fluctuate. This means that the reaction of acid and bicarbonate should take place in open systems, e.g. in an open mixing tank.
 
-[size=8pt]При добавлении в воду кислоты произойдёт реакция нейтрализации (см. уравнение), которая понизит pH. Для нейтрализации используется азотная или ортофосфорная кислоты. Стоит учитывать, что азотная кислота добавит в раствор нитрат-анионы, а ортофосфорная - фосфат-анионы. Их количество будет зависеть от количества гидрокарбонат-иона, присутствующего в исходной воде, потому качество исходной воды определяется количеством гидрокарбонатов, содержащейся в ней (чем меньше - тем лучше). Также растению окажутся доступны ионы кальция и магния, которые содержались в исходной воде, что тоже стоит учитывать. В результате реакции нейтрализации одним из продуктов получается углекислый газ, присутствие которого в растворе может привести к колебанию (флуктуациям) pH, потому нейтрализацию стоит производить в открытых ёмкостях для того, чтобы углекислый газ мог свободно уйти в атмосферу.[/size]
+При добавлении в воду кислоты произойдёт реакция нейтрализации (см. уравнение), которая понизит pH. Для нейтрализации используется азотная или ортофосфорная кислоты. Стоит учитывать, что азотная кислота добавит в раствор нитрат-анионы, а ортофосфорная - фосфат-анионы. Их количество будет зависеть от количества гидрокарбонат-иона, присутствующего в исходной воде, потому качество исходной воды определяется количеством гидрокарбонатов, содержащейся в ней (чем меньше - тем лучше). Также растению окажутся доступны ионы кальция и магния, которые содержались в исходной воде, что тоже стоит учитывать. В результате реакции нейтрализации одним из продуктов получается углекислый газ, присутствие которого в растворе может привести к колебанию (флуктуациям) pH, потому нейтрализацию стоит производить в открытых ёмкостях для того, чтобы углекислый газ мог свободно уйти в атмосферу.
 
 
 **siv237** 31-10-2017
@@ -203,7 +203,7 @@ Nitric acid is commonly used for this purpose, but phosphoric acid and its deriv
 > 
 > Да и серная кислота должна давать нерастворимый сульфат кальция, выпадающий в осадок. Что некошерно.
 
-[font=verdana]да ладно?!?!?[/font] :o 
+да ладно?!?!? :o 
 
 у меня никаких затруднений не возникает однако...
 

@@ -63,7 +63,7 @@ sidebar: ponics_sidebar
 
 Выставка "Защищенный грунт России-2010" будет проходить одновременно с выставкой "Зеленая неделя".
 
-[right]Источник:http://www.greentalk.ru/node/1451[/right]
+Источник:http://www.greentalk.ru/node/1451
 
 
 **Mole_Garden** 02-04-2010

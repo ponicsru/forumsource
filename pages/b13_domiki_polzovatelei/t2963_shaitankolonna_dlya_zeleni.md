@@ -518,7 +518,7 @@ Wildcat: салаты или на бутерброды или на соус пе
 
 а мне нравится чай из смеси сушеных листьев базилика и мяты *8)* 
 
-[https://7dach.ru/recepty/KatiFedorovich/chay-iz-melissy-myaty-i-bazilika-limonnogo-154443.html[/size]](https://7dach.ru/recepty/KatiFedorovich/chay-iz-melissy-myaty-i-bazilika-limonnogo-154443.html][size=2){:target="_blank"}
+[https://7dach.ru/recepty/KatiFedorovich/chay-iz-melissy-myaty-i-bazilika-limonnogo-154443.html](https://7dach.ru/recepty/KatiFedorovich/chay-iz-melissy-myaty-i-bazilika-limonnogo-154443.html){:target="_blank"}
 
 
 **IlyaT** 07-02-2019

@@ -1920,15 +1920,15 @@ Lamptest.ru. Просвещайтесь ;)
 
 **allex_step** 31-05-2018
 
-> [size=2]И про семена не слыхал ни где...[/size]
+> И про семена не слыхал ни где...
 
-[size=2]а погуглить не пробовали?
+а погуглить не пробовали?
 
 [treespk.com/catal...olo_5000_semyan_/](http://forum.ponics.ru/go.php?url=aHR0cDovL3RyZWVzcGsuY29tL2NhdGFsb2cvcHJvZHVjdHMvX3NlbWVuYV90c2VsZWJueWtoX3Jhc3Rlbml5L3NlbWVuYV9rcmFwaXZ5X3VwYWtvdmthX29rb2xvXzUwMDBfc2VteWFuXy8=){:target="_blank"}
 
 [openfito.ru/semena/krapiva-1-fito](http://forum.ponics.ru/go.php?url=aHR0cDovL29wZW5maXRvLnJ1L3NlbWVuYS9rcmFwaXZhLTEtZml0bw==){:target="_blank"}
 
-[/size][http://термочайник.рф/products/krapiva-semena-kupit](http://термочайник.рф/products/krapiva-semena-kupit){:target="_blank"}
+[http://термочайник.рф/products/krapiva-semena-kupit](http://термочайник.рф/products/krapiva-semena-kupit){:target="_blank"}
 
 
 **Пресвятой_ДжимБим** 31-05-2018

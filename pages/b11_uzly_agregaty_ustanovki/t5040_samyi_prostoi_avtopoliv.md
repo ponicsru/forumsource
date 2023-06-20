@@ -5,7 +5,7 @@ sidebar: ponics_sidebar
 
 **Oxy** 04-09-2019
 
-[size=2px]https://www.youtube.com/watch?v=x6ProAzvT1g[/size]
+https://www.youtube.com/watch?v=x6ProAzvT1g
 
 
 **brig62** 05-09-2019

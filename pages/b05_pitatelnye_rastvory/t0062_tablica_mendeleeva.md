@@ -16,6 +16,6 @@ http://www.freesoft.ru/?id=667613
 
 ______________________________
 
-[size=1]Абсолютно любые виды антирадаров [cobra ru 774](http://www.i-radar.ru/catalogue/cobra/){:target="_blank"} у нас есть в наличии[/size]
+Абсолютно любые виды антирадаров [cobra ru 774](http://www.i-radar.ru/catalogue/cobra/){:target="_blank"} у нас есть в наличии
 
 

@@ -17,7 +17,7 @@ sidebar: ponics_sidebar
 
 **Mole_Garden** 24-03-2009
 
-[move] :D[/move]
+ :D
 
 
 **mdima** 24-03-2009
@@ -37,7 +37,7 @@ sidebar: ponics_sidebar
 
 **Mole_Garden** 24-03-2009
 
-[glow=red,2,300]тест теста [/glow]
+тест теста 
 
 
 **Олеганос** 25-03-2009
@@ -91,7 +91,7 @@ sidebar: ponics_sidebar
 
 **Олеганос** 25-03-2009
 
-мне тут нравится 8)[move][/move]
+мне тут нравится 8)
 
 
 **mdima** 25-03-2009

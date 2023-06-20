@@ -441,13 +441,13 @@ Off таки топик
 
 **kochnevov** 05-04-2016
 
-[size=1em][youtube][https://youtu.be/pqCQV2Sajlc](https://youtu.be/pqCQV2Sajlc){:target="_blank"}[/youtube][/size]
+[youtube][https://youtu.be/pqCQV2Sajlc](https://youtu.be/pqCQV2Sajlc){:target="_blank"}[/youtube]
 
-[size=1em]Ну вот, как бы тег [youtube][font=verdana] тоже не работает. [/font][/size]
+Ну вот, как бы тег [youtube] тоже не работает. 
 
-[size=1em][font=verdana]Поэтому ссылка.[/font][font=verdana] [youtu.be/pqCQV2Sajlc](http://forum.ponics.ru/go.php?url=aHR0cHM6Ly95b3V0dS5iZS9wcUNRVjJTYWpsYw==){:target="_blank"}[/font][/size]
+Поэтому ссылка. [youtu.be/pqCQV2Sajlc](http://forum.ponics.ru/go.php?url=aHR0cHM6Ly95b3V0dS5iZS9wcUNRVjJTYWpsYw==){:target="_blank"}
 
-[size=1em]Можно конечно картинки через урлы вставлять, но это очень не удобно, их тогда нужно выкладывать на другом ресурсе.[/size]
+Можно конечно картинки через урлы вставлять, но это очень не удобно, их тогда нужно выкладывать на другом ресурсе.
 
 А вот гневко может и умеет пользоваться, но читает точно не внимательно. :) 
 
@@ -494,7 +494,7 @@ Off таки топик
 > 
 > Но, пробежаться им по листу самое то, попробуйте на части томатов.
 
-Б[size=2]лин, точно! Хелата 4,5%. *Wall* [font=Verdana]Хорошо взял чуть чуть на пробу[/font] :) [/size]
+Блин, точно! Хелата 4,5%. *Wall* Хорошо взял чуть чуть на пробу :) 
 
 
 **kochnevov** 06-04-2016
@@ -615,7 +615,7 @@ Off таки топик
 
 > Ммм… По-моему, не бывает "тенелюбивых" растений - есть теневыносливые…? :-\ :-[ …
 
-[font=Verdana]Точно! Они! :) [/font]
+Точно! Они! :) 
 
 
 **Borodach1** 20-04-2016

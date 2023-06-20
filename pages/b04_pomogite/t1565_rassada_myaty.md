@@ -243,7 +243,7 @@ romerort, а чем нибудь питательноводорастворим�
 
 За всеми возможными выгодами, эффектами и плюсами ... вывод пока прост - (номер за июль 2011 года)
 
- Improvements of LEDs can be expected in the future. Until now, the energy efficiency of LED systems used in practice did not reach the level of HPS; however, they are close to that. Energy efficiency can be expected to increase more in the future and costs will probably decrease. It will be necessary to optimize the use of LEDs within the total horticultural system.
+Improvements of LEDs can be expected in the future. Until now, the energy efficiency of LED systems used in practice did not reach the level of HPS; however, they are close to that. Energy efficiency can be expected to increase more in the future and costs will probably decrease. It will be necessary to optimize the use of LEDs within the total horticultural system.
 
 Усовершенствования светодиодов ... МОЖНО ... ОЖИДАТЬ ... В БУДУЩЕМ.
 

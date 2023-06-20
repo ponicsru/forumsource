@@ -343,22 +343,22 @@ NO3:NH4 10.4:1 в итоге вышло. Так ph стабилен.
 
 **allex_step** 06-06-2018
 
-[font=verdana]похоже можно увеличить -&gt;
+похоже можно увеличить -&gt;
 
 [fert.biotec.ua/tovar_377/](http://forum.ponics.ru/go.php?url=aHR0cDovL2ZlcnQuYmlvdGVjLnVhL3RvdmFyXzM3Ny8=){:target="_blank"}
 
-[goo.gl/rHK1yG](http://forum.ponics.ru/go.php?url=aHR0cHM6Ly9nb28uZ2wvckhLMXlH){:target="_blank"}[/font]
+[goo.gl/rHK1yG](http://forum.ponics.ru/go.php?url=aHR0cHM6Ly9nb28uZ2wvckhLMXlH){:target="_blank"}
 
 
 **allex_step** 06-06-2018
 
-[font=verdana]кстати, есть же информация по профилям на гидру для картофеля:
+кстати, есть же информация по профилям на гидру для картофеля:
 
 [www.hellagrolip.com/...ilization/potato](http://forum.ponics.ru/go.php?url=aHR0cDovL3d3dy5oZWxsYWdyb2xpcC5jb20vZmVydGlsaXphdGlvbi9wb3RhdG8=){:target="_blank"}
 
 [www.globalsciencebooks.info/...139o.pdf](http://forum.ponics.ru/go.php?url=aHR0cDovL3d3dy5nbG9iYWxzY2llbmNlYm9va3MuaW5mby9PbmxpbmUvR1NCT25saW5lL2ltYWdlcy8wOTA2L0ZWQ1NCXzMoU0kxKS9GVkNTQl8zKFNJMSkxMzMtMTM5by5wZGY=){:target="_blank"}
 
-[citeseerx.ist.psu.edu/...1&amp;type=pdf](http://forum.ponics.ru/go.php?url=aHR0cDovL2NpdGVzZWVyeC5pc3QucHN1LmVkdS92aWV3ZG9jL2Rvd25sb2FkP2RvaT0xMC4xLjEuNTMxLjE2NDQmYW1wO3JlcD1yZXAxJmFtcDt0eXBlPXBkZg==){:target="_blank"}[/font]
+[citeseerx.ist.psu.edu/...1&amp;type=pdf](http://forum.ponics.ru/go.php?url=aHR0cDovL2NpdGVzZWVyeC5pc3QucHN1LmVkdS92aWV3ZG9jL2Rvd25sb2FkP2RvaT0xMC4xLjEuNTMxLjE2NDQmYW1wO3JlcD1yZXAxJmFtcDt0eXBlPXBkZg==){:target="_blank"}
 
 
 **VVS_** 06-06-2018
@@ -597,9 +597,9 @@ https://dacha.help/ovoshchi/rannie-sorta-kartofelya
 
 **allex_step** 10-08-2018
 
-[size=2]![](http://cont.ws/uploads/pic/2015/10/%D0%93%D0%B8%D0%B4%D1%80%D0%BE%D0%BF%D0%BE%D0%BD%D0%B8%D0%BA%D0%B0_1-5.jpg)
+![](http://cont.ws/uploads/pic/2015/10/%D0%93%D0%B8%D0%B4%D1%80%D0%BE%D0%BF%D0%BE%D0%BD%D0%B8%D0%BA%D0%B0_1-5.jpg)
 
-[cont.ws/@bia354444/135490](http://forum.ponics.ru/go.php?url=aHR0cHM6Ly9jb250LndzL0BiaWEzNTQ0NDQvMTM1NDkw){:target="_blank"}[/size]
+[cont.ws/@bia354444/135490](http://forum.ponics.ru/go.php?url=aHR0cHM6Ly9jb250LndzL0BiaWEzNTQ0NDQvMTM1NDkw){:target="_blank"}
 
 
 **VVS_** 10-08-2018

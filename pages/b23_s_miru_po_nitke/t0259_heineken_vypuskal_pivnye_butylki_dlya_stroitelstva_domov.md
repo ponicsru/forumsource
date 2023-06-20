@@ -73,7 +73,7 @@ Rockome Gardens, Аркола (Arcola), Иллинойс. Сам этот нео
 
 Простоял дом Пека аж до 1980-х, успев "увидеть" настоящий расцвет бутылочной архитектуры на разных континентах. Жаль только, забавным бутылкам WOBO принять в нём участие, по большому счёту, так и не пришлось. 
 
-[right]Источник: [Membrana](http://www.membrana.ru/articles/simply/2007/10/04/171700.html?wire=mainsection){:target="_blank"}[/right]
+Источник: [Membrana](http://www.membrana.ru/articles/simply/2007/10/04/171700.html?wire=mainsection){:target="_blank"}
 
 
 **Mole_Garden** 21-08-2009

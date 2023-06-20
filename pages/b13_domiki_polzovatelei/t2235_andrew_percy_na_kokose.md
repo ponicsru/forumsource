@@ -377,39 +377,39 @@ Red Savina
 
 Прошлогодняя. Уже писал, что росла при рН 4.0, проливал содой. Вроде бы ей понравилось.
 
-[https://lh4.googleusercontent.com/-DpFK-nW_pHI/VSjcP9ExhqI/AAAAAAAAAMw/raHFQa5hLG8/s889-no/Habanero%2BRed%2BSavina%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-nuqwmviy2Ak/VShRC9jBTdI/AAAAAAAAADQ/N412QgwJsq4/w1343-h889-no/Red%2BSavina.jpg] [img width=513 height=340]https://lh6.googleusercontent.com/-nuqwmviy2Ak/VShRC9jBTdI/AAAAAAAAADQ/N412QgwJsq4/w1343-h889-no/Red%2BSavina.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-DpFK-nW_pHI/VSjcP9ExhqI/AAAAAAAAAMw/raHFQa5hLG8/s889-no/Habanero%2BRed%2BSavina%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400 height=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-nuqwmviy2Ak/VShRC9jBTdI/AAAAAAAAADQ/N412QgwJsq4/w1343-h889-no/Red%2BSavina.jpg) ![](https://lh4.googleusercontent.com/-DpFK-nW_pHI/VSjcP9ExhqI/AAAAAAAAAMw/raHFQa5hLG8/s889-no/Habanero%2BRed%2BSavina%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg)
 
 Scotch Bonnet Yellow
 
 Или лопух ?.. :)
 
-[https://lh6.googleusercontent.com/-Pkk3vaXVVNc/VSjcQwmhSLI/AAAAAAAAAM0/YJ_PQH6DD_s/s889-no/Scotch%2BBonnet%2BYellow%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-Iy4JdtmJ484/VShRDVgRt-I/AAAAAAAAADE/hNhDtpmKPRI/w1343-h889-no/Scotch%2BBonnet%2B30%2B%D0%BC%D0%B0%D1%80%D1%82%D0%B0%2B2015.jpg] [img width=513 height=340]https://lh6.googleusercontent.com/-Iy4JdtmJ484/VShRDVgRt-I/AAAAAAAAADE/hNhDtpmKPRI/w1343-h889-no/Scotch%2BBonnet%2B30%2B%D0%BC%D0%B0%D1%80%D1%82%D0%B0%2B2015.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-Pkk3vaXVVNc/VSjcQwmhSLI/AAAAAAAAAM0/YJ_PQH6DD_s/s889-no/Scotch%2BBonnet%2BYellow%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400 height=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-Iy4JdtmJ484/VShRDVgRt-I/AAAAAAAAADE/hNhDtpmKPRI/w1343-h889-no/Scotch%2BBonnet%2B30%2B%D0%BC%D0%B0%D1%80%D1%82%D0%B0%2B2015.jpg) ![](https://lh6.googleusercontent.com/-Pkk3vaXVVNc/VSjcQwmhSLI/AAAAAAAAAM0/YJ_PQH6DD_s/s889-no/Scotch%2BBonnet%2BYellow%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg)
 
 Jalapeno
 
 Что-то слабо цветет и вяжет, было штук 7 цветков, осталось 2.
 
-[https://lh6.googleusercontent.com/-aZnxFdp3z0c/VSjcP0U_w4I/AAAAAAAAANc/lICABJF9gU8/s889-no/Jalapeno%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img]](https://lh4.googleusercontent.com/-9bCfNLNM3ac/VShRBkwky8I/AAAAAAAAADo/TmpCi13k8-A/w1343-h889-no/Jalapeno%2B30%2B%D0%BC%D0%B0%D1%80%D1%82%D0%B0%2B2015.jpg] [img width=513 height=340]https://lh4.googleusercontent.com/-9bCfNLNM3ac/VShRBkwky8I/AAAAAAAAADo/TmpCi13k8-A/w1343-h889-no/Jalapeno%2B30%2B%D0%BC%D0%B0%D1%80%D1%82%D0%B0%2B2015.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-aZnxFdp3z0c/VSjcP0U_w4I/AAAAAAAAANc/lICABJF9gU8/s889-no/Jalapeno%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400 height=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-9bCfNLNM3ac/VShRBkwky8I/AAAAAAAAADo/TmpCi13k8-A/w1343-h889-no/Jalapeno%2B30%2B%D0%BC%D0%B0%D1%80%D1%82%D0%B0%2B2015.jpg) ![](https://lh6.googleusercontent.com/-aZnxFdp3z0c/VSjcP0U_w4I/AAAAAAAAANc/lICABJF9gU8/s889-no/Jalapeno%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg)
 
 Red Robin 1
 
 Практически без изменений, роста нет, плоды наливаются.
 
-[https://lh6.googleusercontent.com/-1X8BpoKJ-lk/VSjcQFLWdMI/AAAAAAAAANU/w6RBr3oDdVk/s889-no/Red%2BRobin_1%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-FTgyh3LG230/VShRCQb8AMI/AAAAAAAAADc/BkFO-3Bl4Cc/w1343-h889-no/Red%2BRobin%2B1a%2B30%2B%D0%BC%D0%B0%D1%80%D1%82%D0%B0%2B2015.jpg] [img width=513 height=340]https://lh6.googleusercontent.com/-FTgyh3LG230/VShRCQb8AMI/AAAAAAAAADc/BkFO-3Bl4Cc/w1343-h889-no/Red%2BRobin%2B1a%2B30%2B%D0%BC%D0%B0%D1%80%D1%82%D0%B0%2B2015.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-1X8BpoKJ-lk/VSjcQFLWdMI/AAAAAAAAANU/w6RBr3oDdVk/s889-no/Red%2BRobin_1%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400 height=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-FTgyh3LG230/VShRCQb8AMI/AAAAAAAAADc/BkFO-3Bl4Cc/w1343-h889-no/Red%2BRobin%2B1a%2B30%2B%D0%BC%D0%B0%D1%80%D1%82%D0%B0%2B2015.jpg) ![](https://lh6.googleusercontent.com/-1X8BpoKJ-lk/VSjcQFLWdMI/AAAAAAAAANU/w6RBr3oDdVk/s889-no/Red%2BRobin_1%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg)
 
 Лисенок F1
 
 Высаживался как Лисенок, но сейчас уже четко видно, что переопылился. Пока пусть остается Лисенком F1, когда созреет, буду разбираться с кем. Плодовитость классная, штук двадцать плодов уже.
 
-[https://lh6.googleusercontent.com/-dcJDIVLIra8/VSjcTDah_WI/AAAAAAAAANI/S8LqOcVg27w/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2BF1%2B%D0%BF%D0%BB%D0%BE%D0%B4%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-vzZLm1DTzvo/VShRD1jYgSI/AAAAAAAAADY/cYX5OKavsuk/w1343-h889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA-%D0%B0%2B30%2B%D0%BC%D0%B0%D1%80%D1%82%D0%B0%2B2015.jpg] [img width=513 height=340]https://lh6.googleusercontent.com/-vzZLm1DTzvo/VShRD1jYgSI/AAAAAAAAADY/cYX5OKavsuk/w1343-h889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA-%D0%B0%2B30%2B%D0%BC%D0%B0%D1%80%D1%82%D0%B0%2B2015.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-tgRaxIme_Ak/VSjcSBYk3jI/AAAAAAAAANM/Pp24BSZyxOo/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2BF1%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400 height=400]https://lh6.googleusercontent.com/-tgRaxIme_Ak/VSjcSBYk3jI/AAAAAAAAANM/Pp24BSZyxOo/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2BF1%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-dcJDIVLIra8/VSjcTDah_WI/AAAAAAAAANI/S8LqOcVg27w/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2BF1%2B%D0%BF%D0%BB%D0%BE%D0%B4%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400 height=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-vzZLm1DTzvo/VShRD1jYgSI/AAAAAAAAADY/cYX5OKavsuk/w1343-h889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA-%D0%B0%2B30%2B%D0%BC%D0%B0%D1%80%D1%82%D0%B0%2B2015.jpg) ![](https://lh6.googleusercontent.com/-tgRaxIme_Ak/VSjcSBYk3jI/AAAAAAAAANM/Pp24BSZyxOo/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2BF1%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg) ![](https://lh6.googleusercontent.com/-dcJDIVLIra8/VSjcTDah_WI/AAAAAAAAANI/S8LqOcVg27w/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2BF1%2B%D0%BF%D0%BB%D0%BE%D0%B4%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg)
 
 Tabasco
 
-[https://lh4.googleusercontent.com/-gypTQgTGKG0/VSjcRRzUTQI/AAAAAAAAANQ/B_Xrvk5XJcI/s889-no/Tabasco%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-UIhY59dBMpM/VShSyb0lRLI/AAAAAAAAAFQ/Hh8DRUZ0G6I/w1200-h795-no/%D0%A2%D0%B0%D0%B1%D0%B0%D1%81%D0%BA%D0%BE%2B31%2B%D0%BC%D0%B0%D1%80%D1%82%D0%B0.jpg] [img width=513 height=340]https://lh6.googleusercontent.com/-UIhY59dBMpM/VShSyb0lRLI/AAAAAAAAAFQ/Hh8DRUZ0G6I/w1200-h795-no/%D0%A2%D0%B0%D0%B1%D0%B0%D1%81%D0%BA%D0%BE%2B31%2B%D0%BC%D0%B0%D1%80%D1%82%D0%B0.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-gypTQgTGKG0/VSjcRRzUTQI/AAAAAAAAANQ/B_Xrvk5XJcI/s889-no/Tabasco%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400 height=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-UIhY59dBMpM/VShSyb0lRLI/AAAAAAAAAFQ/Hh8DRUZ0G6I/w1200-h795-no/%D0%A2%D0%B0%D0%B1%D0%B0%D1%81%D0%BA%D0%BE%2B31%2B%D0%BC%D0%B0%D1%80%D1%82%D0%B0.jpg) ![](https://lh4.googleusercontent.com/-gypTQgTGKG0/VSjcRRzUTQI/AAAAAAAAANQ/B_Xrvk5XJcI/s889-no/Tabasco%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg)
 
 Красная жемчужина
 
-[https://lh4.googleusercontent.com/-wOJRZWtj9fc/VSjcSQdczKI/AAAAAAAAANE/S4LwkNRX7D8/s889-no/%D0%9A%D1%80%D0%B0%D1%81%D0%BD%D0%B0%D1%8F%2B%D0%B6%D0%B5%D0%BC%D1%87%D1%83%D0%B6%D0%B8%D0%BD%D0%B0%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img]](https://lh4.googleusercontent.com/-5Ni_Z-ku8M4/VShSxLERWPI/AAAAAAAAAFU/nzOFsFN2MaQ/w1200-h795-no/%D0%9A%D1%80%D0%B0%D1%81%D0%BD%D0%B0%D1%8F%2B%D0%B6%D0%B5%D0%BC%D1%87%D1%83%D0%B6%D0%B8%D0%BD%D0%B0%2B31%2B%D0%BC%D0%B0%D1%80%D1%82%D0%B0.jpg] [img width=513 height=340]https://lh4.googleusercontent.com/-5Ni_Z-ku8M4/VShSxLERWPI/AAAAAAAAAFU/nzOFsFN2MaQ/w1200-h795-no/%D0%9A%D1%80%D0%B0%D1%81%D0%BD%D0%B0%D1%8F%2B%D0%B6%D0%B5%D0%BC%D1%87%D1%83%D0%B6%D0%B8%D0%BD%D0%B0%2B31%2B%D0%BC%D0%B0%D1%80%D1%82%D0%B0.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-wOJRZWtj9fc/VSjcSQdczKI/AAAAAAAAANE/S4LwkNRX7D8/s889-no/%D0%9A%D1%80%D0%B0%D1%81%D0%BD%D0%B0%D1%8F%2B%D0%B6%D0%B5%D0%BC%D1%87%D1%83%D0%B6%D0%B8%D0%BD%D0%B0%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400 height=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-5Ni_Z-ku8M4/VShSxLERWPI/AAAAAAAAAFU/nzOFsFN2MaQ/w1200-h795-no/%D0%9A%D1%80%D0%B0%D1%81%D0%BD%D0%B0%D1%8F%2B%D0%B6%D0%B5%D0%BC%D1%87%D1%83%D0%B6%D0%B8%D0%BD%D0%B0%2B31%2B%D0%BC%D0%B0%D1%80%D1%82%D0%B0.jpg) ![](https://lh4.googleusercontent.com/-wOJRZWtj9fc/VSjcSQdczKI/AAAAAAAAANE/S4LwkNRX7D8/s889-no/%D0%9A%D1%80%D0%B0%D1%81%D0%BD%D0%B0%D1%8F%2B%D0%B6%D0%B5%D0%BC%D1%87%D1%83%D0%B6%D0%B8%D0%BD%D0%B0%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg)
 
 
 **Borodach1** 12-04-2015
@@ -452,33 +452,33 @@ Tabasco
 
 Habanero Gold
 
-[https://lh6.googleusercontent.com/-0dHauKfL594/VTIgIzkFpsI/AAAAAAAAAVg/Cg6_to3FgWM/s889-no/Habanero%2BGold%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img]](https://lh4.googleusercontent.com/-5THju1MOdHA/VShruwr7irI/AAAAAAAAAJA/ZDyDzgRcSL4/w1343-h889-no/Habanero%2BGold.jpg] [img width=513]https://lh4.googleusercontent.com/-5THju1MOdHA/VShruwr7irI/AAAAAAAAAJA/ZDyDzgRcSL4/w1343-h889-no/Habanero%2BGold.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-0dHauKfL594/VTIgIzkFpsI/AAAAAAAAAVg/Cg6_to3FgWM/s889-no/Habanero%2BGold%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-5THju1MOdHA/VShruwr7irI/AAAAAAAAAJA/ZDyDzgRcSL4/w1343-h889-no/Habanero%2BGold.jpg) ![](https://lh6.googleusercontent.com/-0dHauKfL594/VTIgIzkFpsI/AAAAAAAAAVg/Cg6_to3FgWM/s889-no/Habanero%2BGold%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg)
 
 Habanero Peach
 
-[https://lh6.googleusercontent.com/-8i79m6mLXf0/VTIgIxowEUI/AAAAAAAAAVU/GspiLjhanqw/s889-no/Habanero%2BPeach%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-egVQ8_16VDY/VShru1Pvv6I/AAAAAAAAAJc/eZ8PYISFAsA/w1343-h889-no/Habanero%2BPeach.jpg] [img width=513]https://lh6.googleusercontent.com/-egVQ8_16VDY/VShru1Pvv6I/AAAAAAAAAJc/eZ8PYISFAsA/w1343-h889-no/Habanero%2BPeach.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-8i79m6mLXf0/VTIgIxowEUI/AAAAAAAAAVU/GspiLjhanqw/s889-no/Habanero%2BPeach%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-egVQ8_16VDY/VShru1Pvv6I/AAAAAAAAAJc/eZ8PYISFAsA/w1343-h889-no/Habanero%2BPeach.jpg) ![](https://lh6.googleusercontent.com/-8i79m6mLXf0/VTIgIxowEUI/AAAAAAAAAVU/GspiLjhanqw/s889-no/Habanero%2BPeach%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg)
 
 Habanero Red
 
-[https://lh4.googleusercontent.com/-m3G7oHhsIyM/VTIgJtvNedI/AAAAAAAAAU4/xbHtnTf9a6g/s889-no/Habanero%2BRed%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-VLHhPGPxLz8/VShrvvsxL_I/AAAAAAAAAJQ/ldXgDTaXB_k/w1343-h889-no/Habanero%2BRed.jpg] [img width=513]https://lh6.googleusercontent.com/-VLHhPGPxLz8/VShrvvsxL_I/AAAAAAAAAJQ/ldXgDTaXB_k/w1343-h889-no/Habanero%2BRed.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-m3G7oHhsIyM/VTIgJtvNedI/AAAAAAAAAU4/xbHtnTf9a6g/s889-no/Habanero%2BRed%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-VLHhPGPxLz8/VShrvvsxL_I/AAAAAAAAAJQ/ldXgDTaXB_k/w1343-h889-no/Habanero%2BRed.jpg) ![](https://lh4.googleusercontent.com/-m3G7oHhsIyM/VTIgJtvNedI/AAAAAAAAAU4/xbHtnTf9a6g/s889-no/Habanero%2BRed%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg)
 
 Aji Ornamental
 
-[https://lh4.googleusercontent.com/-urrF35HwL24/VTIgJAXARuI/AAAAAAAAAVc/4E_0itr8Eus/s889-no/Aji%2BOrnamental%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-zkebZy0jLFA/VShruwtBeKI/AAAAAAAAAJI/3W-GE3kCe78/w1343-h889-no/Aji%2BOrnamental.jpg] [img width=513]https://lh6.googleusercontent.com/-zkebZy0jLFA/VShruwtBeKI/AAAAAAAAAJI/3W-GE3kCe78/w1343-h889-no/Aji%2BOrnamental.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-urrF35HwL24/VTIgJAXARuI/AAAAAAAAAVc/4E_0itr8Eus/s889-no/Aji%2BOrnamental%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-zkebZy0jLFA/VShruwtBeKI/AAAAAAAAAJI/3W-GE3kCe78/w1343-h889-no/Aji%2BOrnamental.jpg) ![](https://lh4.googleusercontent.com/-urrF35HwL24/VTIgJAXARuI/AAAAAAAAAVc/4E_0itr8Eus/s889-no/Aji%2BOrnamental%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg)
 
 Маленькое чудо Видимо это все-таки не Маленькое чудо, потом разберемся.
 
-[https://lh4.googleusercontent.com/-e_g8RThoieg/VTIgLPpP18I/AAAAAAAAAVI/X5J7TpKG1qY/s889-no/%D0%9C%D0%B0%D0%BB%D0%B5%D0%BD%D1%8C%D0%BA%D0%BE%D0%B5%2B%D1%87%D1%83%D0%B4%D0%BE%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img]](https://lh4.googleusercontent.com/-H1uqRaUyLgc/VShrxgSJF7I/AAAAAAAAAJ0/66shSx8CrLw/w1343-h889-no/%D0%9C%D0%B0%D0%BB%D0%B5%D0%BD%D1%8C%D0%BA%D0%BE%D0%B5%2B%D1%87%D1%83%D0%B4%D0%BE.jpg] [img width=513]https://lh4.googleusercontent.com/-H1uqRaUyLgc/VShrxgSJF7I/AAAAAAAAAJ0/66shSx8CrLw/w1343-h889-no/%D0%9C%D0%B0%D0%BB%D0%B5%D0%BD%D1%8C%D0%BA%D0%BE%D0%B5%2B%D1%87%D1%83%D0%B4%D0%BE.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-e_g8RThoieg/VTIgLPpP18I/AAAAAAAAAVI/X5J7TpKG1qY/s889-no/%D0%9C%D0%B0%D0%BB%D0%B5%D0%BD%D1%8C%D0%BA%D0%BE%D0%B5%2B%D1%87%D1%83%D0%B4%D0%BE%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-H1uqRaUyLgc/VShrxgSJF7I/AAAAAAAAAJ0/66shSx8CrLw/w1343-h889-no/%D0%9C%D0%B0%D0%BB%D0%B5%D0%BD%D1%8C%D0%BA%D0%BE%D0%B5%2B%D1%87%D1%83%D0%B4%D0%BE.jpg) ![](https://lh4.googleusercontent.com/-e_g8RThoieg/VTIgLPpP18I/AAAAAAAAAVI/X5J7TpKG1qY/s889-no/%D0%9C%D0%B0%D0%BB%D0%B5%D0%BD%D1%8C%D0%BA%D0%BE%D0%B5%2B%D1%87%D1%83%D0%B4%D0%BE%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg)
 
 Медуза Внутри куча цветов, появились плоды.
 
-[https://lh6.googleusercontent.com/-A9471kA0a3I/VTIgLTlxRJI/AAAAAAAAAVQ/xUqzjRsr8d0/s889-no/%D0%9C%D0%B5%D0%B4%D1%83%D0%B7%D0%B0%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-rX8K7Q3Hp68/VShrymkpAMI/AAAAAAAAAJ8/ZenTRV_ncyw/w1343-h889-no/%D0%9C%D0%B5%D0%B4%D1%83%D0%B7%D0%B0.jpg] [img width=513]https://lh6.googleusercontent.com/-rX8K7Q3Hp68/VShrymkpAMI/AAAAAAAAAJ8/ZenTRV_ncyw/w1343-h889-no/%D0%9C%D0%B5%D0%B4%D1%83%D0%B7%D0%B0.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-A9471kA0a3I/VTIgLTlxRJI/AAAAAAAAAVQ/xUqzjRsr8d0/s889-no/%D0%9C%D0%B5%D0%B4%D1%83%D0%B7%D0%B0%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-rX8K7Q3Hp68/VShrymkpAMI/AAAAAAAAAJ8/ZenTRV_ncyw/w1343-h889-no/%D0%9C%D0%B5%D0%B4%D1%83%D0%B7%D0%B0.jpg) ![](https://lh6.googleusercontent.com/-A9471kA0a3I/VTIgLTlxRJI/AAAAAAAAAVQ/xUqzjRsr8d0/s889-no/%D0%9C%D0%B5%D0%B4%D1%83%D0%B7%D0%B0%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg)
 
 Лисенок Завязал кучу плодов (больше 30), продолжает цвести. 
 
-[https://lh6.googleusercontent.com/-m-gb0gsHIGc/VTIgJ6O66zI/AAAAAAAAAVk/zgtnfmRs7uo/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015%2B%D0%B0.jpg[/img]](https://lh4.googleusercontent.com/-MqAnEiCgqFo/VSkk1nbvLsI/AAAAAAAAAOA/LbYebOiJqxg/w869-h889-no/DSC_6287.jpg] [img width=340]https://lh4.googleusercontent.com/-MqAnEiCgqFo/VSkk1nbvLsI/AAAAAAAAAOA/LbYebOiJqxg/w869-h889-no/DSC_6287.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-m-gb0gsHIGc/VTIgJ6O66zI/AAAAAAAAAVk/zgtnfmRs7uo/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015%2B%D0%B0.jpg] [img width=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-MqAnEiCgqFo/VSkk1nbvLsI/AAAAAAAAAOA/LbYebOiJqxg/w869-h889-no/DSC_6287.jpg) ![](https://lh6.googleusercontent.com/-m-gb0gsHIGc/VTIgJ6O66zI/AAAAAAAAAVk/zgtnfmRs7uo/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015%2B%D0%B0.jpg)
 
-[https://lh6.googleusercontent.com/-YWMjumdMtA8/VTIgKuUzWVI/AAAAAAAAAVE/fBaIKgj2_WQ/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015%2B%D1%81.jpg[/img]](https://lh6.googleusercontent.com/-JFIOHQuVV6A/VTIgKJK9AEI/AAAAAAAAAVM/Bs6F0vDobtA/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015%2B%D0%B2.jpg] [img width=400]https://lh6.googleusercontent.com/-JFIOHQuVV6A/VTIgKJK9AEI/AAAAAAAAAVM/Bs6F0vDobtA/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015%2B%D0%B2.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-YWMjumdMtA8/VTIgKuUzWVI/AAAAAAAAAVE/fBaIKgj2_WQ/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015%2B%D1%81.jpg] [img width=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-JFIOHQuVV6A/VTIgKJK9AEI/AAAAAAAAAVM/Bs6F0vDobtA/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015%2B%D0%B2.jpg) ![](https://lh6.googleusercontent.com/-YWMjumdMtA8/VTIgKuUzWVI/AAAAAAAAAVE/fBaIKgj2_WQ/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015%2B%D1%81.jpg)
 
 
 **...Andrew...** 21-04-2015
@@ -489,39 +489,39 @@ Red Savina Habanero
 
 Начал активно цвести, будет еще больше, куча бутонов висит, сотня, может и две. Визуально пыльцы нет, но сунул цветок под микроскоп - на каждой тычинке несколько пылинок все-таки есть, да уже и завязал несколько плодов.
 
-[https://lh6.googleusercontent.com/-t9nGj4ALfF0/VTZcZCANchI/AAAAAAAAAYg/d1F5MLO0BKQ/s889-no/Habanero%2BRed%2BSavina%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img]](https://lh4.googleusercontent.com/-DpFK-nW_pHI/VSjcP9ExhqI/AAAAAAAAAPE/m4Y3gTAG7mM/s889-no/Habanero%2BRed%2BSavina%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400]https://lh4.googleusercontent.com/-DpFK-nW_pHI/VSjcP9ExhqI/AAAAAAAAAPE/m4Y3gTAG7mM/s889-no/Habanero%2BRed%2BSavina%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-t9nGj4ALfF0/VTZcZCANchI/AAAAAAAAAYg/d1F5MLO0BKQ/s889-no/Habanero%2BRed%2BSavina%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-DpFK-nW_pHI/VSjcP9ExhqI/AAAAAAAAAPE/m4Y3gTAG7mM/s889-no/Habanero%2BRed%2BSavina%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg) ![](https://lh6.googleusercontent.com/-t9nGj4ALfF0/VTZcZCANchI/AAAAAAAAAYg/d1F5MLO0BKQ/s889-no/Habanero%2BRed%2BSavina%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg)
 
 Jalapeno
 
 Проступили явные признаки перелива (белые точки) и проблем питания (светлые пятна на старых листьях), померял дренаж - 5.8 рН, 700 ppm. С питанием все нормально. Видимо погода и связанный с ней перелив.
 
-[https://lh4.googleusercontent.com/-NuFLMcbpzuA/VTZcZWq2CSI/AAAAAAAAAYo/MqMlBcfWhbw/s889-no/Jalapeno%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img]](https://lh4.googleusercontent.com/-aZnxFdp3z0c/VSjcP0U_w4I/AAAAAAAAAO8/DdEqS-VAr_I/s889-no/Jalapeno%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400]https://lh4.googleusercontent.com/-aZnxFdp3z0c/VSjcP0U_w4I/AAAAAAAAAO8/DdEqS-VAr_I/s889-no/Jalapeno%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-NuFLMcbpzuA/VTZcZWq2CSI/AAAAAAAAAYo/MqMlBcfWhbw/s889-no/Jalapeno%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-aZnxFdp3z0c/VSjcP0U_w4I/AAAAAAAAAO8/DdEqS-VAr_I/s889-no/Jalapeno%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg) ![](https://lh4.googleusercontent.com/-NuFLMcbpzuA/VTZcZWq2CSI/AAAAAAAAAYo/MqMlBcfWhbw/s889-no/Jalapeno%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg)
 
 Scotch Bonnet Yellow
 
 Гонит вверх, длинные мощные междоузлия, толстый ствол. Тоже видимо из-за недостатка света.
 
-[https://lh4.googleusercontent.com/-g2RWdjcUTuE/VTZcZMImO0I/AAAAAAAAAYw/_dCLFOSjJ6Y/s889-no/Scotch%2BBonnet%2BYellow%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-Pkk3vaXVVNc/VSjcQwmhSLI/AAAAAAAAAQo/uq35Whv52yM/s889-no/Scotch%2BBonnet%2BYellow%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400]https://lh6.googleusercontent.com/-Pkk3vaXVVNc/VSjcQwmhSLI/AAAAAAAAAQo/uq35Whv52yM/s889-no/Scotch%2BBonnet%2BYellow%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-g2RWdjcUTuE/VTZcZMImO0I/AAAAAAAAAYw/_dCLFOSjJ6Y/s889-no/Scotch%2BBonnet%2BYellow%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-Pkk3vaXVVNc/VSjcQwmhSLI/AAAAAAAAAQo/uq35Whv52yM/s889-no/Scotch%2BBonnet%2BYellow%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg) ![](https://lh4.googleusercontent.com/-g2RWdjcUTuE/VTZcZMImO0I/AAAAAAAAAYw/_dCLFOSjJ6Y/s889-no/Scotch%2BBonnet%2BYellow%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg)
 
 Tabasko
 
 Обильно цветет, начал вязать.
 
-[https://lh6.googleusercontent.com/-zMaLBG3MOjI/VTZcZzhMDhI/AAAAAAAAAY4/OZHr2nVR9aU/s889-no/Tabasco%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img]](https://lh4.googleusercontent.com/-gypTQgTGKG0/VSjcRRzUTQI/AAAAAAAAAQQ/JaJjjOxOO90/s889-no/Tabasco%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400]https://lh4.googleusercontent.com/-gypTQgTGKG0/VSjcRRzUTQI/AAAAAAAAAQQ/JaJjjOxOO90/s889-no/Tabasco%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-zMaLBG3MOjI/VTZcZzhMDhI/AAAAAAAAAY4/OZHr2nVR9aU/s889-no/Tabasco%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-gypTQgTGKG0/VSjcRRzUTQI/AAAAAAAAAQQ/JaJjjOxOO90/s889-no/Tabasco%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg) ![](https://lh6.googleusercontent.com/-zMaLBG3MOjI/VTZcZzhMDhI/AAAAAAAAAY4/OZHr2nVR9aU/s889-no/Tabasco%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg)
 
 Красная жемчужина
 
-[https://lh6.googleusercontent.com/-WTomqEdlA6U/VTZcaH0tMmI/AAAAAAAAAZE/Pa9tVytCNsw/s889-no/%D0%9A%D1%80%D0%B0%D1%81%D0%BD%D0%B0%D1%8F%2B%D0%B6%D0%B5%D0%BC%D1%87%D1%83%D0%B6%D0%B8%D0%BD%D0%B0%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img]](https://lh4.googleusercontent.com/-wOJRZWtj9fc/VSjcSQdczKI/AAAAAAAAANE/S4LwkNRX7D8/s889-no/%D0%9A%D1%80%D0%B0%D1%81%D0%BD%D0%B0%D1%8F%2B%D0%B6%D0%B5%D0%BC%D1%87%D1%83%D0%B6%D0%B8%D0%BD%D0%B0%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400]https://lh4.googleusercontent.com/-wOJRZWtj9fc/VSjcSQdczKI/AAAAAAAAANE/S4LwkNRX7D8/s889-no/%D0%9A%D1%80%D0%B0%D1%81%D0%BD%D0%B0%D1%8F%2B%D0%B6%D0%B5%D0%BC%D1%87%D1%83%D0%B6%D0%B8%D0%BD%D0%B0%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-WTomqEdlA6U/VTZcaH0tMmI/AAAAAAAAAZE/Pa9tVytCNsw/s889-no/%D0%9A%D1%80%D0%B0%D1%81%D0%BD%D0%B0%D1%8F%2B%D0%B6%D0%B5%D0%BC%D1%87%D1%83%D0%B6%D0%B8%D0%BD%D0%B0%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-wOJRZWtj9fc/VSjcSQdczKI/AAAAAAAAANE/S4LwkNRX7D8/s889-no/%D0%9A%D1%80%D0%B0%D1%81%D0%BD%D0%B0%D1%8F%2B%D0%B6%D0%B5%D0%BC%D1%87%D1%83%D0%B6%D0%B8%D0%BD%D0%B0%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg) ![](https://lh6.googleusercontent.com/-WTomqEdlA6U/VTZcaH0tMmI/AAAAAAAAAZE/Pa9tVytCNsw/s889-no/%D0%9A%D1%80%D0%B0%D1%81%D0%BD%D0%B0%D1%8F%2B%D0%B6%D0%B5%D0%BC%D1%87%D1%83%D0%B6%D0%B8%D0%BD%D0%B0%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg)
 
 Лисенок F1
 
 Не Лисенок, а Монстро какой-то, ствол весь облеплен перцами, которые торчат розетками.
 
-[https://lh4.googleusercontent.com/-2kgWy-M3kLY/VTZcaacdNkI/AAAAAAAAAZU/jsTzoTOY15E/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2BF1%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-tgRaxIme_Ak/VSjcSBYk3jI/AAAAAAAAANM/Pp24BSZyxOo/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2BF1%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400]https://lh6.googleusercontent.com/-tgRaxIme_Ak/VSjcSBYk3jI/AAAAAAAAANM/Pp24BSZyxOo/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2BF1%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-2kgWy-M3kLY/VTZcaacdNkI/AAAAAAAAAZU/jsTzoTOY15E/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2BF1%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-tgRaxIme_Ak/VSjcSBYk3jI/AAAAAAAAANM/Pp24BSZyxOo/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2BF1%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg) ![](https://lh4.googleusercontent.com/-2kgWy-M3kLY/VTZcaacdNkI/AAAAAAAAAZU/jsTzoTOY15E/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2BF1%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg)
 
 Плоды Лисенок F1 и Оранжевое чудо
 
-[https://lh4.googleusercontent.com/-Ftz95aQVxqA/VTZcbNAxsaI/AAAAAAAAAX4/qc8XhLU_4gQ/s889-no/%D0%9E%D1%80%D0%B0%D0%BD%D0%B6%D0%B5%D0%B2%D0%BE%D0%B5%2B%D1%87%D1%83%D0%B4%D0%BE%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img]](https://lh4.googleusercontent.com/-GIEnNh3GB4c/VTZca9ZgWUI/AAAAAAAAAZI/qROBn3R4rGA/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2BF1%2B%D0%B0%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400]https://lh4.googleusercontent.com/-GIEnNh3GB4c/VTZca9ZgWUI/AAAAAAAAAZI/qROBn3R4rGA/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2BF1%2B%D0%B0%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-Ftz95aQVxqA/VTZcbNAxsaI/AAAAAAAAAX4/qc8XhLU_4gQ/s889-no/%D0%9E%D1%80%D0%B0%D0%BD%D0%B6%D0%B5%D0%B2%D0%BE%D0%B5%2B%D1%87%D1%83%D0%B4%D0%BE%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-GIEnNh3GB4c/VTZca9ZgWUI/AAAAAAAAAZI/qROBn3R4rGA/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2BF1%2B%D0%B0%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg) ![](https://lh4.googleusercontent.com/-Ftz95aQVxqA/VTZcbNAxsaI/AAAAAAAAAX4/qc8XhLU_4gQ/s889-no/%D0%9E%D1%80%D0%B0%D0%BD%D0%B6%D0%B5%D0%B2%D0%BE%D0%B5%2B%D1%87%D1%83%D0%B4%D0%BE%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg)
 
 
 **orgail** 21-04-2015
@@ -561,39 +561,39 @@ Tabasko
 
 Habanero Gold
 
-[https://lh4.googleusercontent.com/-TBs81ruXoao/VT-Xh9qdnTI/AAAAAAAAAbQ/GeOPfW2dyKs/s889-no/Habanero%2BGold%2B28%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-0dHauKfL594/VTIgIzkFpsI/AAAAAAAAAVg/Cg6_to3FgWM/s889-no/Habanero%2BGold%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400]https://lh6.googleusercontent.com/-0dHauKfL594/VTIgIzkFpsI/AAAAAAAAAVg/Cg6_to3FgWM/s889-no/Habanero%2BGold%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-TBs81ruXoao/VT-Xh9qdnTI/AAAAAAAAAbQ/GeOPfW2dyKs/s889-no/Habanero%2BGold%2B28%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-0dHauKfL594/VTIgIzkFpsI/AAAAAAAAAVg/Cg6_to3FgWM/s889-no/Habanero%2BGold%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg) ![](https://lh4.googleusercontent.com/-TBs81ruXoao/VT-Xh9qdnTI/AAAAAAAAAbQ/GeOPfW2dyKs/s889-no/Habanero%2BGold%2B28%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg)
 
 Habanero Peach
 
-[https://lh6.googleusercontent.com/-HFhS1PkCZSI/VT-XiH4vVII/AAAAAAAAAbM/PVOJTxSiezA/s889-no/Habanero%2BPeach%2B28%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-8i79m6mLXf0/VTIgIxowEUI/AAAAAAAAAVU/GspiLjhanqw/s889-no/Habanero%2BPeach%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400]https://lh6.googleusercontent.com/-8i79m6mLXf0/VTIgIxowEUI/AAAAAAAAAVU/GspiLjhanqw/s889-no/Habanero%2BPeach%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-HFhS1PkCZSI/VT-XiH4vVII/AAAAAAAAAbM/PVOJTxSiezA/s889-no/Habanero%2BPeach%2B28%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-8i79m6mLXf0/VTIgIxowEUI/AAAAAAAAAVU/GspiLjhanqw/s889-no/Habanero%2BPeach%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg) ![](https://lh6.googleusercontent.com/-HFhS1PkCZSI/VT-XiH4vVII/AAAAAAAAAbM/PVOJTxSiezA/s889-no/Habanero%2BPeach%2B28%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg)
 
 Habanero Red
 
-[https://lh4.googleusercontent.com/-fp9zWKS7aS0/VT-XiWU-4LI/AAAAAAAAAbI/jTWXnsKPd1c/s889-no/Habanero%2BRed%2B28%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img]](https://lh4.googleusercontent.com/-m3G7oHhsIyM/VTIgJtvNedI/AAAAAAAAAU4/xbHtnTf9a6g/s889-no/Habanero%2BRed%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400]https://lh4.googleusercontent.com/-m3G7oHhsIyM/VTIgJtvNedI/AAAAAAAAAU4/xbHtnTf9a6g/s889-no/Habanero%2BRed%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-fp9zWKS7aS0/VT-XiWU-4LI/AAAAAAAAAbI/jTWXnsKPd1c/s889-no/Habanero%2BRed%2B28%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-m3G7oHhsIyM/VTIgJtvNedI/AAAAAAAAAU4/xbHtnTf9a6g/s889-no/Habanero%2BRed%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg) ![](https://lh4.googleusercontent.com/-fp9zWKS7aS0/VT-XiWU-4LI/AAAAAAAAAbI/jTWXnsKPd1c/s889-no/Habanero%2BRed%2B28%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg)
 
 Aji Omnicolor
 
 Досмотрелся, что он у меня не Ornamental, а Omnicolor. Бардак у меня с названиями.
 
-[https://lh4.googleusercontent.com/-p7O2jxWRDmY/VT-XhEAq_7I/AAAAAAAAAbU/wumDq-4DU-s/s889-no/Aji%2BOmnicolor%2B28%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img]](https://lh4.googleusercontent.com/-urrF35HwL24/VTIgJAXARuI/AAAAAAAAAVc/4E_0itr8Eus/s889-no/Aji%2BOrnamental%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400]https://lh4.googleusercontent.com/-urrF35HwL24/VTIgJAXARuI/AAAAAAAAAVc/4E_0itr8Eus/s889-no/Aji%2BOrnamental%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-p7O2jxWRDmY/VT-XhEAq_7I/AAAAAAAAAbU/wumDq-4DU-s/s889-no/Aji%2BOmnicolor%2B28%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-urrF35HwL24/VTIgJAXARuI/AAAAAAAAAVc/4E_0itr8Eus/s889-no/Aji%2BOrnamental%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg) ![](https://lh4.googleusercontent.com/-p7O2jxWRDmY/VT-XhEAq_7I/AAAAAAAAAbU/wumDq-4DU-s/s889-no/Aji%2BOmnicolor%2B28%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg)
 
 Маленькое чудо 
 
 Резко выгнал 4 боковых побега.
 
-[https://lh6.googleusercontent.com/-60RGU4sU1Nk/VT-Xjw9zKUI/AAAAAAAAAbA/XHjInsdj0SQ/s889-no/%D0%9C%D0%B0%D0%BB%D0%B5%D0%BD%D1%8C%D0%BA%D0%BE%D0%B5%2B%D1%87%D1%83%D0%B4%D0%BE%2B28%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img]](https://lh4.googleusercontent.com/-e_g8RThoieg/VTIgLPpP18I/AAAAAAAAAVI/X5J7TpKG1qY/s889-no/%D0%9C%D0%B0%D0%BB%D0%B5%D0%BD%D1%8C%D0%BA%D0%BE%D0%B5%2B%D1%87%D1%83%D0%B4%D0%BE%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400]https://lh4.googleusercontent.com/-e_g8RThoieg/VTIgLPpP18I/AAAAAAAAAVI/X5J7TpKG1qY/s889-no/%D0%9C%D0%B0%D0%BB%D0%B5%D0%BD%D1%8C%D0%BA%D0%BE%D0%B5%2B%D1%87%D1%83%D0%B4%D0%BE%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-60RGU4sU1Nk/VT-Xjw9zKUI/AAAAAAAAAbA/XHjInsdj0SQ/s889-no/%D0%9C%D0%B0%D0%BB%D0%B5%D0%BD%D1%8C%D0%BA%D0%BE%D0%B5%2B%D1%87%D1%83%D0%B4%D0%BE%2B28%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-e_g8RThoieg/VTIgLPpP18I/AAAAAAAAAVI/X5J7TpKG1qY/s889-no/%D0%9C%D0%B0%D0%BB%D0%B5%D0%BD%D1%8C%D0%BA%D0%BE%D0%B5%2B%D1%87%D1%83%D0%B4%D0%BE%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg) ![](https://lh6.googleusercontent.com/-60RGU4sU1Nk/VT-Xjw9zKUI/AAAAAAAAAbA/XHjInsdj0SQ/s889-no/%D0%9C%D0%B0%D0%BB%D0%B5%D0%BD%D1%8C%D0%BA%D0%BE%D0%B5%2B%D1%87%D1%83%D0%B4%D0%BE%2B28%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg)
 
 Лисенок 
 
-[https://lh6.googleusercontent.com/-lRRczFG46iY/VT-XjIMg4pI/AAAAAAAAAa4/ssGTmuT3L9Y/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2B28%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-m-gb0gsHIGc/VTIgJ6O66zI/AAAAAAAAAVk/zgtnfmRs7uo/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015%2B%D0%B0.jpg] [img width=400]https://lh6.googleusercontent.com/-m-gb0gsHIGc/VTIgJ6O66zI/AAAAAAAAAVk/zgtnfmRs7uo/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015%2B%D0%B0.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-lRRczFG46iY/VT-XjIMg4pI/AAAAAAAAAa4/ssGTmuT3L9Y/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2B28%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-m-gb0gsHIGc/VTIgJ6O66zI/AAAAAAAAAVk/zgtnfmRs7uo/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2B18%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015%2B%D0%B0.jpg) ![](https://lh6.googleusercontent.com/-lRRczFG46iY/VT-XjIMg4pI/AAAAAAAAAa4/ssGTmuT3L9Y/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2B28%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg)
 
 Плоды Лисенка, и цветок Aji Omnicolor. Достал для пробы из загашника Индустар и набор макроколец. Качество ужасное, в следующий раз Юпитером-37 попробую. Кто как макро колхозит ?
 
-[https://lh4.googleusercontent.com/-zH6QMLwF12I/VT-XhHiHVjI/AAAAAAAAAbY/ah1doUAPdSI/s889-no/Aji%2BOmnicolor-zv1%2B28%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img]](https://lh4.googleusercontent.com/-k8voFAF9y2s/VT-XjWdydoI/AAAAAAAAAbE/iDXSOrgpAPo/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA-%D0%B0%2B28%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400]https://lh4.googleusercontent.com/-k8voFAF9y2s/VT-XjWdydoI/AAAAAAAAAbE/iDXSOrgpAPo/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA-%D0%B0%2B28%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-zH6QMLwF12I/VT-XhHiHVjI/AAAAAAAAAbY/ah1doUAPdSI/s889-no/Aji%2BOmnicolor-zv1%2B28%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-k8voFAF9y2s/VT-XjWdydoI/AAAAAAAAAbE/iDXSOrgpAPo/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA-%D0%B0%2B28%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg) ![](https://lh4.googleusercontent.com/-zH6QMLwF12I/VT-XhHiHVjI/AAAAAAAAAbY/ah1doUAPdSI/s889-no/Aji%2BOmnicolor-zv1%2B28%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg)
 
 Да, и чуть не забыл, первый урожай:
 
-[https://lh6.googleusercontent.com/-LJ4wGg_GekE/VT-XiuqsmbI/AAAAAAAAAa8/lignKv3TPD4/s889-no/Red%2BRobin-1%2B28%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-LJ4wGg_GekE/VT-XiuqsmbI/AAAAAAAAAa8/lignKv3TPD4/s889-no/Red%2BRobin-1%2B28%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-LJ4wGg_GekE/VT-XiuqsmbI/AAAAAAAAAa8/lignKv3TPD4/s889-no/Red%2BRobin-1%2B28%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg)
 
 
 **Coccinella** 28-04-2015
@@ -605,9 +605,9 @@ Aji Omnicolor
 
 Попробовал Юпитер с кольцами, значительно веселее оказался:
 
-[https://lh4.googleusercontent.com/-OBKJjHli1e4/VT_NoXiv5bI/AAAAAAAAAc8/S4XxCmYHSsI/s889-no/DSC_6776.jpg[/img]](https://lh6.googleusercontent.com/-oXSxVeD971Y/VT_NouJKBkI/AAAAAAAAAdE/bkL5gS2G-Iw/s889-no/DSC_6775.jpg] [img width=400]https://lh6.googleusercontent.com/-oXSxVeD971Y/VT_NouJKBkI/AAAAAAAAAdE/bkL5gS2G-Iw/s889-no/DSC_6775.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-OBKJjHli1e4/VT_NoXiv5bI/AAAAAAAAAc8/S4XxCmYHSsI/s889-no/DSC_6776.jpg] [img width=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-oXSxVeD971Y/VT_NouJKBkI/AAAAAAAAAdE/bkL5gS2G-Iw/s889-no/DSC_6775.jpg) ![](https://lh4.googleusercontent.com/-OBKJjHli1e4/VT_NoXiv5bI/AAAAAAAAAc8/S4XxCmYHSsI/s889-no/DSC_6776.jpg)
 
-[https://lh6.googleusercontent.com/-COE_FKKJIFk/VT_NptT0s1I/AAAAAAAAAdU/oh24ClQaw9M/s889-no/DSC_6786.jpg[/img]](https://lh6.googleusercontent.com/-4X_M03C0yUQ/VT_NopmPmBI/AAAAAAAAAdM/4AUksIHSHaI/s889-no/DSC_6782.jpg] [img width=400]https://lh6.googleusercontent.com/-4X_M03C0yUQ/VT_NopmPmBI/AAAAAAAAAdM/4AUksIHSHaI/s889-no/DSC_6782.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-COE_FKKJIFk/VT_NptT0s1I/AAAAAAAAAdU/oh24ClQaw9M/s889-no/DSC_6786.jpg] [img width=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-4X_M03C0yUQ/VT_NopmPmBI/AAAAAAAAAdM/4AUksIHSHaI/s889-no/DSC_6782.jpg) ![](https://lh6.googleusercontent.com/-COE_FKKJIFk/VT_NptT0s1I/AAAAAAAAAdU/oh24ClQaw9M/s889-no/DSC_6786.jpg)
 
 
 **Borodach1** 29-04-2015
@@ -711,13 +711,13 @@ Nikon D5100, кольца удлинительные, не реверсные, �
 
 Для Borodach1: Мы с Вами разговаривали по поводу тени от объектива и шевелёнки. Фокусное расстояние - 44 и 50 мм. Вспышка внешняя. Расстояние до объекта съемки - около 7 см. Тени разумеется нет. Последняя половина фото снята с рук. Брак не велик - порядка 60-70%. Поэтому - можно. 
 
-[https://lh6.googleusercontent.com/-hPCEFpomBU0/VUEYU6vsdPI/AAAAAAAAAe4/aXEfmucp0JQ/s889-no/DSC_6799.jpg[/img]](https://lh3.googleusercontent.com/U5fbyECc3-g1l6VXHUGnRT7E4HfMT8n_M4HRzI5TJ4g=s889-no] [img width=450]https://lh3.googleusercontent.com/U5fbyECc3-g1l6VXHUGnRT7E4HfMT8n_M4HRzI5TJ4g=s889-no[/img][/url] [url=https://lh6.googleusercontent.com/-hPCEFpomBU0/VUEYU6vsdPI/AAAAAAAAAe4/aXEfmucp0JQ/s889-no/DSC_6799.jpg] [img width=450){:target="_blank"}
+![](https://lh3.googleusercontent.com/U5fbyECc3-g1l6VXHUGnRT7E4HfMT8n_M4HRzI5TJ4g=s889-no) ![](https://lh6.googleusercontent.com/-hPCEFpomBU0/VUEYU6vsdPI/AAAAAAAAAe4/aXEfmucp0JQ/s889-no/DSC_6799.jpg)
 
-[https://lh6.googleusercontent.com/-T4rbwrWUs0c/VUEYVyH3vVI/AAAAAAAAAeU/m3BhvSuSbRQ/s889-no/DSC_6807.jpg[/img]](https://lh6.googleusercontent.com/-JftEPijsDZw/VUEYU7stbkI/AAAAAAAAAeE/jbki9VwRy8Q/s889-no/DSC_6805.jpg] [img width=450]https://lh6.googleusercontent.com/-JftEPijsDZw/VUEYU7stbkI/AAAAAAAAAeE/jbki9VwRy8Q/s889-no/DSC_6805.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-T4rbwrWUs0c/VUEYVyH3vVI/AAAAAAAAAeU/m3BhvSuSbRQ/s889-no/DSC_6807.jpg] [img width=450){:target="_blank"}
+![](https://lh6.googleusercontent.com/-JftEPijsDZw/VUEYU7stbkI/AAAAAAAAAeE/jbki9VwRy8Q/s889-no/DSC_6805.jpg) ![](https://lh6.googleusercontent.com/-T4rbwrWUs0c/VUEYVyH3vVI/AAAAAAAAAeU/m3BhvSuSbRQ/s889-no/DSC_6807.jpg)
 
-[https://lh4.googleusercontent.com/-RPfyVJRSihg/VUEYWy7HYFI/AAAAAAAAAew/sBYsUUduw3o/s889-no/DSC_6811.jpg[/img]](https://lh6.googleusercontent.com/-0b09LXwpyy8/VUEYWR1aPHI/AAAAAAAAAeo/QMZyq8ltbsM/s889-no/DSC_6809.jpg] [img width=450]https://lh6.googleusercontent.com/-0b09LXwpyy8/VUEYWR1aPHI/AAAAAAAAAeo/QMZyq8ltbsM/s889-no/DSC_6809.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-RPfyVJRSihg/VUEYWy7HYFI/AAAAAAAAAew/sBYsUUduw3o/s889-no/DSC_6811.jpg] [img width=450){:target="_blank"}
+![](https://lh6.googleusercontent.com/-0b09LXwpyy8/VUEYWR1aPHI/AAAAAAAAAeo/QMZyq8ltbsM/s889-no/DSC_6809.jpg) ![](https://lh4.googleusercontent.com/-RPfyVJRSihg/VUEYWy7HYFI/AAAAAAAAAew/sBYsUUduw3o/s889-no/DSC_6811.jpg)
 
-[https://lh4.googleusercontent.com/-0mcF4Tbm024/VUEYXh2GfUI/AAAAAAAAAe0/E0FTQCXDrSE/s889-no/DSC_6822.jpg[/img]](https://lh6.googleusercontent.com/-K3Ss93m_3K4/VUEYXfQ-aJI/AAAAAAAAAes/wNE_6dAhnJQ/s889-no/DSC_6818.jpg] [img width=450]https://lh6.googleusercontent.com/-K3Ss93m_3K4/VUEYXfQ-aJI/AAAAAAAAAes/wNE_6dAhnJQ/s889-no/DSC_6818.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-0mcF4Tbm024/VUEYXh2GfUI/AAAAAAAAAe0/E0FTQCXDrSE/s889-no/DSC_6822.jpg] [img width=450){:target="_blank"}
+![](https://lh6.googleusercontent.com/-K3Ss93m_3K4/VUEYXfQ-aJI/AAAAAAAAAes/wNE_6dAhnJQ/s889-no/DSC_6818.jpg) ![](https://lh4.googleusercontent.com/-0mcF4Tbm024/VUEYXh2GfUI/AAAAAAAAAe0/E0FTQCXDrSE/s889-no/DSC_6822.jpg)
 
 
 **Borodach1** 30-04-2015
@@ -742,19 +742,19 @@ Nikon D5100, кольца удлинительные, не реверсные, �
 
 **...Andrew...** 01-05-2015
 
-[https://lh6.googleusercontent.com/-k_Vn1UNDnyE/VUNCrl4Fk_I/AAAAAAAAAgI/EFEC2VFIneM/s889-no/Habanero%2BRed%2BSavina-2%2B01%2B%D0%BC%D0%B0%D1%8F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-t9nGj4ALfF0/VTZcZCANchI/AAAAAAAAAYk/6IxBaMGLlfI/s889-no/Habanero%2BRed%2BSavina%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400]https://lh6.googleusercontent.com/-t9nGj4ALfF0/VTZcZCANchI/AAAAAAAAAYk/6IxBaMGLlfI/s889-no/Habanero%2BRed%2BSavina%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-k_Vn1UNDnyE/VUNCrl4Fk_I/AAAAAAAAAgI/EFEC2VFIneM/s889-no/Habanero%2BRed%2BSavina-2%2B01%2B%D0%BC%D0%B0%D1%8F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-t9nGj4ALfF0/VTZcZCANchI/AAAAAAAAAYk/6IxBaMGLlfI/s889-no/Habanero%2BRed%2BSavina%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg) ![](https://lh6.googleusercontent.com/-k_Vn1UNDnyE/VUNCrl4Fk_I/AAAAAAAAAgI/EFEC2VFIneM/s889-no/Habanero%2BRed%2BSavina-2%2B01%2B%D0%BC%D0%B0%D1%8F%2B2015.jpg)
 
-[https://lh4.googleusercontent.com/-8_dNgGBeREc/VUNCrm6cBVI/AAAAAAAAAfw/EpPTUGJojAg/s889-no/Habanero%2BRed%2BSavina-1%2B01%2B%D0%BC%D0%B0%D1%8F%2B2015.jpg[/img]](https://lh4.googleusercontent.com/-FTEtLTeRghg/VUNCrfOmrnI/AAAAAAAAAgE/6pzBOBqB_mk/s889-no/Habanero%2BRed%2BSavina%2B01%2B%D0%BC%D0%B0%D1%8F%2B2015.jpg] [img width=400]https://lh4.googleusercontent.com/-FTEtLTeRghg/VUNCrfOmrnI/AAAAAAAAAgE/6pzBOBqB_mk/s889-no/Habanero%2BRed%2BSavina%2B01%2B%D0%BC%D0%B0%D1%8F%2B2015.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-8_dNgGBeREc/VUNCrm6cBVI/AAAAAAAAAfw/EpPTUGJojAg/s889-no/Habanero%2BRed%2BSavina-1%2B01%2B%D0%BC%D0%B0%D1%8F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-FTEtLTeRghg/VUNCrfOmrnI/AAAAAAAAAgE/6pzBOBqB_mk/s889-no/Habanero%2BRed%2BSavina%2B01%2B%D0%BC%D0%B0%D1%8F%2B2015.jpg) ![](https://lh4.googleusercontent.com/-8_dNgGBeREc/VUNCrm6cBVI/AAAAAAAAAfw/EpPTUGJojAg/s889-no/Habanero%2BRed%2BSavina-1%2B01%2B%D0%BC%D0%B0%D1%8F%2B2015.jpg)
 
-[https://lh6.googleusercontent.com/-AV6gncBIWT8/VUNCsFuS2wI/AAAAAAAAAf8/kF6QjGj3joA/s889-no/Jalapeno%2B01%2B%D0%BC%D0%B0%D1%8F%2B2015.jpg[/img]](https://lh4.googleusercontent.com/-NuFLMcbpzuA/VTZcZWq2CSI/AAAAAAAAAYs/GcEJ162ATdI/s889-no/Jalapeno%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400]https://lh4.googleusercontent.com/-NuFLMcbpzuA/VTZcZWq2CSI/AAAAAAAAAYs/GcEJ162ATdI/s889-no/Jalapeno%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-AV6gncBIWT8/VUNCsFuS2wI/AAAAAAAAAf8/kF6QjGj3joA/s889-no/Jalapeno%2B01%2B%D0%BC%D0%B0%D1%8F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-NuFLMcbpzuA/VTZcZWq2CSI/AAAAAAAAAYs/GcEJ162ATdI/s889-no/Jalapeno%2B11%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg) ![](https://lh6.googleusercontent.com/-AV6gncBIWT8/VUNCsFuS2wI/AAAAAAAAAf8/kF6QjGj3joA/s889-no/Jalapeno%2B01%2B%D0%BC%D0%B0%D1%8F%2B2015.jpg)
 
-[https://lh6.googleusercontent.com/-RCX0yUCU_oI/VUNCsfE8jCI/AAAAAAAAAgM/x7P_DfBxLEk/s889-no/Scotch%2BBonnet%2BYellow%2B01%2B%D0%BC%D0%B0%D1%8F%2B2015.jpg[/img]](https://lh4.googleusercontent.com/-g2RWdjcUTuE/VTZcZMImO0I/AAAAAAAAAY0/WTFS8N38umc/s889-no/Scotch%2BBonnet%2BYellow%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400]https://lh4.googleusercontent.com/-g2RWdjcUTuE/VTZcZMImO0I/AAAAAAAAAY0/WTFS8N38umc/s889-no/Scotch%2BBonnet%2BYellow%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-RCX0yUCU_oI/VUNCsfE8jCI/AAAAAAAAAgM/x7P_DfBxLEk/s889-no/Scotch%2BBonnet%2BYellow%2B01%2B%D0%BC%D0%B0%D1%8F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-g2RWdjcUTuE/VTZcZMImO0I/AAAAAAAAAY0/WTFS8N38umc/s889-no/Scotch%2BBonnet%2BYellow%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg) ![](https://lh6.googleusercontent.com/-RCX0yUCU_oI/VUNCsfE8jCI/AAAAAAAAAgM/x7P_DfBxLEk/s889-no/Scotch%2BBonnet%2BYellow%2B01%2B%D0%BC%D0%B0%D1%8F%2B2015.jpg)
 
-[https://lh4.googleusercontent.com/-1nxDqNr3Z4o/VUNCtFAsYZI/AAAAAAAAAgo/JdSuAdOimOY/s889-no/%D0%9A%D1%80%D0%B0%D1%81%D0%BD%D0%B0%D1%8F%2B%D0%B6%D0%B5%D0%BC%D1%87%D1%83%D0%B6%D0%B8%D0%BD%D0%B0%2B01%2B%D0%BC%D0%B0%D1%8F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-WTomqEdlA6U/VTZcaH0tMmI/AAAAAAAAAZE/Pa9tVytCNsw/s889-no/%D0%9A%D1%80%D0%B0%D1%81%D0%BD%D0%B0%D1%8F%2B%D0%B6%D0%B5%D0%BC%D1%87%D1%83%D0%B6%D0%B8%D0%BD%D0%B0%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400]https://lh6.googleusercontent.com/-WTomqEdlA6U/VTZcaH0tMmI/AAAAAAAAAZE/Pa9tVytCNsw/s889-no/%D0%9A%D1%80%D0%B0%D1%81%D0%BD%D0%B0%D1%8F%2B%D0%B6%D0%B5%D0%BC%D1%87%D1%83%D0%B6%D0%B8%D0%BD%D0%B0%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-1nxDqNr3Z4o/VUNCtFAsYZI/AAAAAAAAAgo/JdSuAdOimOY/s889-no/%D0%9A%D1%80%D0%B0%D1%81%D0%BD%D0%B0%D1%8F%2B%D0%B6%D0%B5%D0%BC%D1%87%D1%83%D0%B6%D0%B8%D0%BD%D0%B0%2B01%2B%D0%BC%D0%B0%D1%8F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-WTomqEdlA6U/VTZcaH0tMmI/AAAAAAAAAZE/Pa9tVytCNsw/s889-no/%D0%9A%D1%80%D0%B0%D1%81%D0%BD%D0%B0%D1%8F%2B%D0%B6%D0%B5%D0%BC%D1%87%D1%83%D0%B6%D0%B8%D0%BD%D0%B0%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg) ![](https://lh4.googleusercontent.com/-1nxDqNr3Z4o/VUNCtFAsYZI/AAAAAAAAAgo/JdSuAdOimOY/s889-no/%D0%9A%D1%80%D0%B0%D1%81%D0%BD%D0%B0%D1%8F%2B%D0%B6%D0%B5%D0%BC%D1%87%D1%83%D0%B6%D0%B8%D0%BD%D0%B0%2B01%2B%D0%BC%D0%B0%D1%8F%2B2015.jpg)
 
-[https://lh4.googleusercontent.com/-FyoJeZbZmjg/VUNCszvmJII/AAAAAAAAAgQ/QJSrmhRitmU/s889-no/Tabasko%2B01%2B%D0%BC%D0%B0%D1%8F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-zMaLBG3MOjI/VTZcZzhMDhI/AAAAAAAAAY8/HMHNsOIGXxQ/s889-no/Tabasco%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400]https://lh6.googleusercontent.com/-zMaLBG3MOjI/VTZcZzhMDhI/AAAAAAAAAY8/HMHNsOIGXxQ/s889-no/Tabasco%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-FyoJeZbZmjg/VUNCszvmJII/AAAAAAAAAgQ/QJSrmhRitmU/s889-no/Tabasko%2B01%2B%D0%BC%D0%B0%D1%8F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-zMaLBG3MOjI/VTZcZzhMDhI/AAAAAAAAAY8/HMHNsOIGXxQ/s889-no/Tabasco%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg) ![](https://lh4.googleusercontent.com/-FyoJeZbZmjg/VUNCszvmJII/AAAAAAAAAgQ/QJSrmhRitmU/s889-no/Tabasko%2B01%2B%D0%BC%D0%B0%D1%8F%2B2015.jpg)
 
-[https://lh4.googleusercontent.com/-DkYbbhoAysY/VUNCtyvZuyI/AAAAAAAAAgg/Z7rTuJUPuRs/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2BF1-2%2B01%2B%D0%BC%D0%B0%D1%8F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-GIEnNh3GB4c/VTZca9ZgWUI/AAAAAAAAAZM/I7aW01RBKgM/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2BF1%2B%D0%B0%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg] [img width=400]https://lh6.googleusercontent.com/-GIEnNh3GB4c/VTZca9ZgWUI/AAAAAAAAAZM/I7aW01RBKgM/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2BF1%2B%D0%B0%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-DkYbbhoAysY/VUNCtyvZuyI/AAAAAAAAAgg/Z7rTuJUPuRs/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2BF1-2%2B01%2B%D0%BC%D0%B0%D1%8F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-GIEnNh3GB4c/VTZca9ZgWUI/AAAAAAAAAZM/I7aW01RBKgM/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2BF1%2B%D0%B0%2B21%2B%D0%B0%D0%BF%D1%80%D0%B5%D0%BB%D1%8F%2B2015.jpg) ![](https://lh4.googleusercontent.com/-DkYbbhoAysY/VUNCtyvZuyI/AAAAAAAAAgg/Z7rTuJUPuRs/s889-no/%D0%9B%D0%B8%D1%81%D0%B5%D0%BD%D0%BE%D0%BA%2BF1-2%2B01%2B%D0%BC%D0%B0%D1%8F%2B2015.jpg)
 
 
 **...Andrew...** 01-05-2015
@@ -776,7 +776,7 @@ Red Savina завязала уже полсотни плодов, и обеща�
 
 **...Andrew...** 04-05-2015
 
-[https://lh4.googleusercontent.com/-s7xk56bOlUk/VUd3JSOJZwI/AAAAAAAAAh4/sAVeclWEcd0/w1051-h841-no/%D0%9F%D0%B0%D0%BD%D0%BE%D1%80%D0%B0%D0%BC%D0%B0_%D0%B1%D0%B5%D0%B7_%D0%BD%D0%B0%D0%B7%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F3.jpg[/img]](https://lh4.googleusercontent.com/-s7xk56bOlUk/VUd3JSOJZwI/AAAAAAAAAh4/sAVeclWEcd0/w1051-h841-no/%D0%9F%D0%B0%D0%BD%D0%BE%D1%80%D0%B0%D0%BC%D0%B0_%D0%B1%D0%B5%D0%B7_%D0%BD%D0%B0%D0%B7%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F3.jpg] [img width=1100){:target="_blank"}
+![](https://lh4.googleusercontent.com/-s7xk56bOlUk/VUd3JSOJZwI/AAAAAAAAAh4/sAVeclWEcd0/w1051-h841-no/%D0%9F%D0%B0%D0%BD%D0%BE%D1%80%D0%B0%D0%BC%D0%B0_%D0%B1%D0%B5%D0%B7_%D0%BD%D0%B0%D0%B7%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F3.jpg)
 
 
 **...Andrew...** 07-05-2015
@@ -785,7 +785,7 @@ Red Savina завязала уже полсотни плодов, и обеща�
 
 Рядом Ред Робин, весь уже созрел, штук 15 плодов по 8 грамм.
 
-[https://lh5.googleusercontent.com/-oKuWOTBvzo0/VUtwiQNNVQI/AAAAAAAAAks/kUovFzhywhI/w978-h841-no/DSC_7100.jpg[/img]](https://lh6.googleusercontent.com/-0inHxJpdDwc/VUtwaBmIB1I/AAAAAAAAAkM/dhkwwL4KozA/s841-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2BF1%2B07%2Bvfz%2B2015.jpg] [img width=400]https://lh6.googleusercontent.com/-0inHxJpdDwc/VUtwaBmIB1I/AAAAAAAAAkM/dhkwwL4KozA/s841-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2BF1%2B07%2Bvfz%2B2015.jpg[/img][/url] [url=https://lh5.googleusercontent.com/-oKuWOTBvzo0/VUtwiQNNVQI/AAAAAAAAAks/kUovFzhywhI/w978-h841-no/DSC_7100.jpg] [img height=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-0inHxJpdDwc/VUtwaBmIB1I/AAAAAAAAAkM/dhkwwL4KozA/s841-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2BF1%2B07%2Bvfz%2B2015.jpg) ![](https://lh5.googleusercontent.com/-oKuWOTBvzo0/VUtwiQNNVQI/AAAAAAAAAks/kUovFzhywhI/w978-h841-no/DSC_7100.jpg)
 
 
 **cpf** 07-05-2015
@@ -820,39 +820,39 @@ Red Savina завязала уже полсотни плодов, и обеща�
 
 Red Savina Habanero
 
-[https://lh4.googleusercontent.com/-TMOoS0TZ7kI/VU4AkjjaxRI/AAAAAAAAAmQ/YSiHvME-Ub4/s889-no/Red%2BSavina%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015%2B%25D0%25B0.jpg[/img]](https://lh6.googleusercontent.com/-k_Vn1UNDnyE/VUNCrl4Fk_I/AAAAAAAAAgI/EFEC2VFIneM/s889-no/Habanero%2BRed%2BSavina-2%2B01%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400]https://lh6.googleusercontent.com/-k_Vn1UNDnyE/VUNCrl4Fk_I/AAAAAAAAAgI/EFEC2VFIneM/s889-no/Habanero%2BRed%2BSavina-2%2B01%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-naM4Bzxi3Hs/VU4AlG2lncI/AAAAAAAAApM/aEaYJG1jKSM/s889-no/Red%2BSavina%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400]https://lh6.googleusercontent.com/-naM4Bzxi3Hs/VU4AlG2lncI/AAAAAAAAApM/aEaYJG1jKSM/s889-no/Red%2BSavina%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-TMOoS0TZ7kI/VU4AkjjaxRI/AAAAAAAAAmQ/YSiHvME-Ub4/s889-no/Red%2BSavina%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015%2B%25D0%25B0.jpg] [img height=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-k_Vn1UNDnyE/VUNCrl4Fk_I/AAAAAAAAAgI/EFEC2VFIneM/s889-no/Habanero%2BRed%2BSavina-2%2B01%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg) ![](https://lh6.googleusercontent.com/-naM4Bzxi3Hs/VU4AlG2lncI/AAAAAAAAApM/aEaYJG1jKSM/s889-no/Red%2BSavina%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg) ![](https://lh4.googleusercontent.com/-TMOoS0TZ7kI/VU4AkjjaxRI/AAAAAAAAAmQ/YSiHvME-Ub4/s889-no/Red%2BSavina%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015%2B%25D0%25B0.jpg)
 
 Habanero Gold
 
-[https://lh4.googleusercontent.com/-whQXQ3mHDGU/VU4Ah_byU_I/AAAAAAAAAlg/eQRpMsY-Liw/s889-no/Habanero%2BGold%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img]](https://lh4.googleusercontent.com/-TBs81ruXoao/VT-Xh9qdnTI/AAAAAAAAAbQ/GeOPfW2dyKs/s889-no/Habanero%2BGold%2B28%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg] [img height=400]https://lh4.googleusercontent.com/-TBs81ruXoao/VT-Xh9qdnTI/AAAAAAAAAbQ/GeOPfW2dyKs/s889-no/Habanero%2BGold%2B28%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-whQXQ3mHDGU/VU4Ah_byU_I/AAAAAAAAAlg/eQRpMsY-Liw/s889-no/Habanero%2BGold%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-TBs81ruXoao/VT-Xh9qdnTI/AAAAAAAAAbQ/GeOPfW2dyKs/s889-no/Habanero%2BGold%2B28%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg) ![](https://lh4.googleusercontent.com/-whQXQ3mHDGU/VU4Ah_byU_I/AAAAAAAAAlg/eQRpMsY-Liw/s889-no/Habanero%2BGold%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg)
 
 Habanero Peach
 
-[https://lh6.googleusercontent.com/-okFf_YWqEac/VU4AqLbYE8I/AAAAAAAAAns/ZWti3p82U3c/s889-no/Habanero%2BPeach%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-HFhS1PkCZSI/VT-XiH4vVII/AAAAAAAAAbM/PVOJTxSiezA/s889-no/Habanero%2BPeach%2B28%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg] [img height=400]https://lh6.googleusercontent.com/-HFhS1PkCZSI/VT-XiH4vVII/AAAAAAAAAbM/PVOJTxSiezA/s889-no/Habanero%2BPeach%2B28%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-okFf_YWqEac/VU4AqLbYE8I/AAAAAAAAAns/ZWti3p82U3c/s889-no/Habanero%2BPeach%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-HFhS1PkCZSI/VT-XiH4vVII/AAAAAAAAAbM/PVOJTxSiezA/s889-no/Habanero%2BPeach%2B28%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg) ![](https://lh6.googleusercontent.com/-okFf_YWqEac/VU4AqLbYE8I/AAAAAAAAAns/ZWti3p82U3c/s889-no/Habanero%2BPeach%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg)
 
 Вот такой у него цветок на шесть лепестков, в первый раз вижу
 
-[https://lh6.googleusercontent.com/-QE0_-A9cy1Q/VU4AiRCUHSI/AAAAAAAAAls/HpyguX3yfnQ/s889-no/Habanero%2BPeach%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015%2B%25D0%25B1.jpg[/img]](https://lh6.googleusercontent.com/-QE0_-A9cy1Q/VU4AiRCUHSI/AAAAAAAAAls/HpyguX3yfnQ/s889-no/Habanero%2BPeach%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015%2B%25D0%25B1.jpg] [img height=400){:target="_blank"} 
+![](https://lh6.googleusercontent.com/-QE0_-A9cy1Q/VU4AiRCUHSI/AAAAAAAAAls/HpyguX3yfnQ/s889-no/Habanero%2BPeach%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015%2B%25D0%25B1.jpg) 
 
 Habanero Red
 
-[https://lh6.googleusercontent.com/-_sGD68KpU-E/VU4Ai-zvyXI/AAAAAAAAAl0/Gug1EautD_k/s889-no/Habanero%2BRed%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img]](https://lh4.googleusercontent.com/-fp9zWKS7aS0/VT-XiWU-4LI/AAAAAAAAAbI/jTWXnsKPd1c/s889-no/Habanero%2BRed%2B28%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg] [img height=400]https://lh4.googleusercontent.com/-fp9zWKS7aS0/VT-XiWU-4LI/AAAAAAAAAbI/jTWXnsKPd1c/s889-no/Habanero%2BRed%2B28%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-_sGD68KpU-E/VU4Ai-zvyXI/AAAAAAAAAl0/Gug1EautD_k/s889-no/Habanero%2BRed%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-fp9zWKS7aS0/VT-XiWU-4LI/AAAAAAAAAbI/jTWXnsKPd1c/s889-no/Habanero%2BRed%2B28%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg) ![](https://lh6.googleusercontent.com/-_sGD68KpU-E/VU4Ai-zvyXI/AAAAAAAAAl0/Gug1EautD_k/s889-no/Habanero%2BRed%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg)
 
 Scotch Bonnet Yellow
 
 Здоровый, еще даже цвести не начал, но скоро.
 
-[https://lh6.googleusercontent.com/-vET1I-7CNP8/VU4AlX-L2VI/AAAAAAAAAmg/VqDKQbE50fs/s889-no/Scotch%2BBonnet%2BYellow%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-RCX0yUCU_oI/VUNCsfE8jCI/AAAAAAAAAgM/x7P_DfBxLEk/s889-no/Scotch%2BBonnet%2BYellow%2B01%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400]https://lh6.googleusercontent.com/-RCX0yUCU_oI/VUNCsfE8jCI/AAAAAAAAAgM/x7P_DfBxLEk/s889-no/Scotch%2BBonnet%2BYellow%2B01%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-vET1I-7CNP8/VU4AlX-L2VI/AAAAAAAAAmg/VqDKQbE50fs/s889-no/Scotch%2BBonnet%2BYellow%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-RCX0yUCU_oI/VUNCsfE8jCI/AAAAAAAAAgM/x7P_DfBxLEk/s889-no/Scotch%2BBonnet%2BYellow%2B01%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg) ![](https://lh6.googleusercontent.com/-vET1I-7CNP8/VU4AlX-L2VI/AAAAAAAAAmg/VqDKQbE50fs/s889-no/Scotch%2BBonnet%2BYellow%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg)
 
 Теперь остальные.
 
 Aji Omnicolor
 
-[https://lh4.googleusercontent.com/-r3GxFXrsqas/VU4AgiiWMfI/AAAAAAAAApM/DNRI4rFvEsk/s889-no/Aji%2BOmnicolor%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img]](https://lh4.googleusercontent.com/-p7O2jxWRDmY/VT-XhEAq_7I/AAAAAAAAAbU/wumDq-4DU-s/s889-no/Aji%2BOmnicolor%2B28%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg] [img height=400]https://lh4.googleusercontent.com/-p7O2jxWRDmY/VT-XhEAq_7I/AAAAAAAAAbU/wumDq-4DU-s/s889-no/Aji%2BOmnicolor%2B28%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-r3GxFXrsqas/VU4AgiiWMfI/AAAAAAAAApM/DNRI4rFvEsk/s889-no/Aji%2BOmnicolor%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-p7O2jxWRDmY/VT-XhEAq_7I/AAAAAAAAAbU/wumDq-4DU-s/s889-no/Aji%2BOmnicolor%2B28%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg) ![](https://lh4.googleusercontent.com/-r3GxFXrsqas/VU4AgiiWMfI/AAAAAAAAApM/DNRI4rFvEsk/s889-no/Aji%2BOmnicolor%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg)
 
 А теперь вопрос: как вот это понимать ? Слева фото 12 дней назад, справа сегодня.
 
-[https://lh6.googleusercontent.com/-hh_2jvs5fWQ/VU4Agn4aEGI/AAAAAAAAApM/WuR6klL98rU/s889-no/Aji%2BOmnicolor%2Bplod%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-COE_FKKJIFk/VT_NptT0s1I/AAAAAAAAAdo/mwigWilfBes/s889-no/DSC_6786.jpg] [img height=400]https://lh6.googleusercontent.com/-COE_FKKJIFk/VT_NptT0s1I/AAAAAAAAAdo/mwigWilfBes/s889-no/DSC_6786.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-hh_2jvs5fWQ/VU4Agn4aEGI/AAAAAAAAApM/WuR6klL98rU/s889-no/Aji%2BOmnicolor%2Bplod%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-COE_FKKJIFk/VT_NptT0s1I/AAAAAAAAAdo/mwigWilfBes/s889-no/DSC_6786.jpg) ![](https://lh6.googleusercontent.com/-hh_2jvs5fWQ/VU4Agn4aEGI/AAAAAAAAApM/WuR6klL98rU/s889-no/Aji%2BOmnicolor%2Bplod%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg)
 
 Размер не изменился ни на миллиметр, лишь пожелтел немного. В первый раз такое вижу. Это особенность баккатумов или какая-то аномальная задержка развития этого плода (или этого растения) ?
 
@@ -860,25 +860,25 @@ Tabasko
 
 Буйный, быстро гонит ветки, обильно цветет, хорошо вяжет. Здесь чуток листья опустил, с поливом не поспел.
 
-[https://lh4.googleusercontent.com/-HZk1-MoYhuw/VU4AmAoFVDI/AAAAAAAAAnA/WUfFmyVbDCY/s889-no/Tabasko%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img]](https://lh4.googleusercontent.com/-FyoJeZbZmjg/VUNCszvmJII/AAAAAAAAAgQ/QJSrmhRitmU/s889-no/Tabasko%2B01%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400]https://lh4.googleusercontent.com/-FyoJeZbZmjg/VUNCszvmJII/AAAAAAAAAgQ/QJSrmhRitmU/s889-no/Tabasko%2B01%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-HZk1-MoYhuw/VU4AmAoFVDI/AAAAAAAAAnA/WUfFmyVbDCY/s889-no/Tabasko%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-FyoJeZbZmjg/VUNCszvmJII/AAAAAAAAAgQ/QJSrmhRitmU/s889-no/Tabasko%2B01%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg) ![](https://lh4.googleusercontent.com/-HZk1-MoYhuw/VU4AmAoFVDI/AAAAAAAAAnA/WUfFmyVbDCY/s889-no/Tabasko%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg)
 
 Лисенок
 
 Без изменений.
 
-[https://lh4.googleusercontent.com/-8Kuqnd7M4II/VU4An4CC3zI/AAAAAAAAAnM/0SkOEqlh3W0/s889-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-lRRczFG46iY/VT-XjIMg4pI/AAAAAAAAAa4/ssGTmuT3L9Y/s889-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2B28%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg] [img height=400]https://lh6.googleusercontent.com/-lRRczFG46iY/VT-XjIMg4pI/AAAAAAAAAa4/ssGTmuT3L9Y/s889-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2B28%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-8Kuqnd7M4II/VU4An4CC3zI/AAAAAAAAAnM/0SkOEqlh3W0/s889-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-lRRczFG46iY/VT-XjIMg4pI/AAAAAAAAAa4/ssGTmuT3L9Y/s889-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2B28%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg) ![](https://lh4.googleusercontent.com/-8Kuqnd7M4II/VU4An4CC3zI/AAAAAAAAAnM/0SkOEqlh3W0/s889-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg)
 
 Красная жемчужина
 
 Водохлеб, поливаю каждый день. 
 
-[https://lh4.googleusercontent.com/-uKg96t4Rgf4/VU4AnkDQ6gI/AAAAAAAAApM/M4JKeQz25mQ/s889-no/%25D0%259A%25D1%2580%25D0%25B0%25D1%2581%25D0%25BD%25D0%25B0%25D1%258F%2B%25D0%25B6%25D0%25B5%25D0%25BC%25D1%2587%25D0%25B6%25D0%25B8%25D0%25BD%25D0%25B0%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img]](https://lh4.googleusercontent.com/-1nxDqNr3Z4o/VUNCtFAsYZI/AAAAAAAAAgo/JdSuAdOimOY/s889-no/%25D0%259A%25D1%2580%25D0%25B0%25D1%2581%25D0%25BD%25D0%25B0%25D1%258F%2B%25D0%25B6%25D0%25B5%25D0%25BC%25D1%2587%25D1%2583%25D0%25B6%25D0%25B8%25D0%25BD%25D0%25B0%2B01%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400]https://lh4.googleusercontent.com/-1nxDqNr3Z4o/VUNCtFAsYZI/AAAAAAAAAgo/JdSuAdOimOY/s889-no/%25D0%259A%25D1%2580%25D0%25B0%25D1%2581%25D0%25BD%25D0%25B0%25D1%258F%2B%25D0%25B6%25D0%25B5%25D0%25BC%25D1%2587%25D1%2583%25D0%25B6%25D0%25B8%25D0%25BD%25D0%25B0%2B01%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-uKg96t4Rgf4/VU4AnkDQ6gI/AAAAAAAAApM/M4JKeQz25mQ/s889-no/%25D0%259A%25D1%2580%25D0%25B0%25D1%2581%25D0%25BD%25D0%25B0%25D1%258F%2B%25D0%25B6%25D0%25B5%25D0%25BC%25D1%2587%25D0%25B6%25D0%25B8%25D0%25BD%25D0%25B0%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-1nxDqNr3Z4o/VUNCtFAsYZI/AAAAAAAAAgo/JdSuAdOimOY/s889-no/%25D0%259A%25D1%2580%25D0%25B0%25D1%2581%25D0%25BD%25D0%25B0%25D1%258F%2B%25D0%25B6%25D0%25B5%25D0%25BC%25D1%2587%25D1%2583%25D0%25B6%25D0%25B8%25D0%25BD%25D0%25B0%2B01%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg) ![](https://lh4.googleusercontent.com/-uKg96t4Rgf4/VU4AnkDQ6gI/AAAAAAAAApM/M4JKeQz25mQ/s889-no/%25D0%259A%25D1%2580%25D0%25B0%25D1%2581%25D0%25BD%25D0%25B0%25D1%258F%2B%25D0%25B6%25D0%25B5%25D0%25BC%25D1%2587%25D0%25B6%25D0%25B8%25D0%25BD%25D0%25B0%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg)
 
 Лисенок F1
 
 Недавно писал о нем, самый первый из всех февральских дал созревший плод.
 
-[https://lh6.googleusercontent.com/-WyBIDsDTvnQ/VU4Ao9cZ3XI/AAAAAAAAAnQ/h-gXdWn0LUM/s889-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2BF1%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-jMdJYPPxz6Y/VUNCtlBLbvI/AAAAAAAAAgk/dbqc1LX_K3M/s889-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2BF1%2B01%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400]https://lh6.googleusercontent.com/-jMdJYPPxz6Y/VUNCtlBLbvI/AAAAAAAAAgk/dbqc1LX_K3M/s889-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2BF1%2B01%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-WyBIDsDTvnQ/VU4Ao9cZ3XI/AAAAAAAAAnQ/h-gXdWn0LUM/s889-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2BF1%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-jMdJYPPxz6Y/VUNCtlBLbvI/AAAAAAAAAgk/dbqc1LX_K3M/s889-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2BF1%2B01%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg) ![](https://lh6.googleusercontent.com/-WyBIDsDTvnQ/VU4Ao9cZ3XI/AAAAAAAAAnQ/h-gXdWn0LUM/s889-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2BF1%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg)
 
 Маленькое чудо
 
@@ -886,19 +886,19 @@ Tabasko
 
 Кстати, может кто поможет опознать? 
 
-[https://lh6.googleusercontent.com/-FagGIvznFrU/VU4ApALrFsI/AAAAAAAAAo8/3wZQZ3jGgaQ/s889-no/%25D0%259C%25D0%25B0%25D0%25BB%25D0%25B5%25D0%25BD%25D1%258C%25D0%25BA%25D0%25BE%25D0%25B5%2B%25D1%2587%25D1%2583%25D0%25B4%25D0%25BE%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-60RGU4sU1Nk/VT-Xjw9zKUI/AAAAAAAAAbA/XHjInsdj0SQ/s889-no/%25D0%259C%25D0%25B0%25D0%25BB%25D0%25B5%25D0%25BD%25D1%258C%25D0%25BA%25D0%25BE%25D0%25B5%2B%25D1%2587%25D1%2583%25D0%25B4%25D0%25BE%2B28%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg] [img height=400]https://lh6.googleusercontent.com/-60RGU4sU1Nk/VT-Xjw9zKUI/AAAAAAAAAbA/XHjInsdj0SQ/s889-no/%25D0%259C%25D0%25B0%25D0%25BB%25D0%25B5%25D0%25BD%25D1%258C%25D0%25BA%25D0%25BE%25D0%25B5%2B%25D1%2587%25D1%2583%25D0%25B4%25D0%25BE%2B28%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-FagGIvznFrU/VU4ApALrFsI/AAAAAAAAAo8/3wZQZ3jGgaQ/s889-no/%25D0%259C%25D0%25B0%25D0%25BB%25D0%25B5%25D0%25BD%25D1%258C%25D0%25BA%25D0%25BE%25D0%25B5%2B%25D1%2587%25D1%2583%25D0%25B4%25D0%25BE%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-60RGU4sU1Nk/VT-Xjw9zKUI/AAAAAAAAAbA/XHjInsdj0SQ/s889-no/%25D0%259C%25D0%25B0%25D0%25BB%25D0%25B5%25D0%25BD%25D1%258C%25D0%25BA%25D0%25BE%25D0%25B5%2B%25D1%2587%25D1%2583%25D0%25B4%25D0%25BE%2B28%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg) ![](https://lh6.googleusercontent.com/-FagGIvznFrU/VU4ApALrFsI/AAAAAAAAAo8/3wZQZ3jGgaQ/s889-no/%25D0%259C%25D0%25B0%25D0%25BB%25D0%25B5%25D0%25BD%25D1%258C%25D0%25BA%25D0%25BE%25D0%25B5%2B%25D1%2587%25D1%2583%25D0%25B4%25D0%25BE%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg)
 
-[https://lh4.googleusercontent.com/-ZyOJzulPzQ4/VU4ApvRV0FI/AAAAAAAAAo4/ODmAaaQfn8A/s889-no/%25D0%259C%25D0%25B0%25D0%25BB%25D0%25B5%25D0%25BD%25D1%258C%25D0%25BA%25D0%25BE%25D0%25B5%2B%25D1%2587%25D1%2583%25D0%25B4%25D0%25BE%2B%25D0%25BF%25D0%25BB%25D0%25BE%25D0%25B4%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img]](https://lh4.googleusercontent.com/-tc_oFlZitoE/VU4MjuDBZZI/AAAAAAAAApg/N3i9ixZQXCs/w979-h889-no/%25D0%25A6%25D0%25B2%25D0%25B5%25D1%2582%25D0%25BE%25D0%25BA%2B%25D0%259C%25D0%25B0%25D0%25BB%25D0%25B5%25D0%25BD%25D1%258C%25D0%25BA%25D0%25BE%25D0%25B5%2B%25D1%2587%25D1%2583%25D0%25B4%25D0%25BE.jpg] [img height=400]https://lh4.googleusercontent.com/-tc_oFlZitoE/VU4MjuDBZZI/AAAAAAAAApg/N3i9ixZQXCs/w979-h889-no/%25D0%25A6%25D0%25B2%25D0%25B5%25D1%2582%25D0%25BE%25D0%25BA%2B%25D0%259C%25D0%25B0%25D0%25BB%25D0%25B5%25D0%25BD%25D1%258C%25D0%25BA%25D0%25BE%25D0%25B5%2B%25D1%2587%25D1%2583%25D0%25B4%25D0%25BE.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-ZyOJzulPzQ4/VU4ApvRV0FI/AAAAAAAAAo4/ODmAaaQfn8A/s889-no/%25D0%259C%25D0%25B0%25D0%25BB%25D0%25B5%25D0%25BD%25D1%258C%25D0%25BA%25D0%25BE%25D0%25B5%2B%25D1%2587%25D1%2583%25D0%25B4%25D0%25BE%2B%25D0%25BF%25D0%25BB%25D0%25BE%25D0%25B4%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-tc_oFlZitoE/VU4MjuDBZZI/AAAAAAAAApg/N3i9ixZQXCs/w979-h889-no/%25D0%25A6%25D0%25B2%25D0%25B5%25D1%2582%25D0%25BE%25D0%25BA%2B%25D0%259C%25D0%25B0%25D0%25BB%25D0%25B5%25D0%25BD%25D1%258C%25D0%25BA%25D0%25BE%25D0%25B5%2B%25D1%2587%25D1%2583%25D0%25B4%25D0%25BE.jpg) ![](https://lh4.googleusercontent.com/-ZyOJzulPzQ4/VU4ApvRV0FI/AAAAAAAAAo4/ODmAaaQfn8A/s889-no/%25D0%259C%25D0%25B0%25D0%25BB%25D0%25B5%25D0%25BD%25D1%258C%25D0%25BA%25D0%25BE%25D0%25B5%2B%25D1%2587%25D1%2583%25D0%25B4%25D0%25BE%2B%25D0%25BF%25D0%25BB%25D0%25BE%25D0%25B4%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg)
 
 Медуза
 
-[https://lh5.googleusercontent.com/q-xMIxQHamLkWDZNqO4xs3EI-HMFG_QPDl7w4EqTt-0=s889-no[/img]](https://lh6.googleusercontent.com/-A9471kA0a3I/VTIgLTlxRJI/AAAAAAAAAVQ/xUqzjRsr8d0/s889-no/%25D0%259C%25D0%25B5%25D0%25B4%25D1%2583%25D0%25B7%25D0%25B0%2B18%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg] [img height=400]https://lh6.googleusercontent.com/-A9471kA0a3I/VTIgLTlxRJI/AAAAAAAAAVQ/xUqzjRsr8d0/s889-no/%25D0%259C%25D0%25B5%25D0%25B4%25D1%2583%25D0%25B7%25D0%25B0%2B18%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh5.googleusercontent.com/q-xMIxQHamLkWDZNqO4xs3EI-HMFG_QPDl7w4EqTt-0=s889-no] [img height=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-A9471kA0a3I/VTIgLTlxRJI/AAAAAAAAAVQ/xUqzjRsr8d0/s889-no/%25D0%259C%25D0%25B5%25D0%25B4%25D1%2583%25D0%25B7%25D0%25B0%2B18%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg) ![](https://lh5.googleusercontent.com/q-xMIxQHamLkWDZNqO4xs3EI-HMFG_QPDl7w4EqTt-0=s889-no)
 
 Jalapeno
 
 Начал наконец-то завязывать плоды.
 
-[https://lh4.googleusercontent.com/-2t8sejOxv7Y/VU4AjTbo-iI/AAAAAAAAAmE/zzByZChaIyE/s889-no/Jalapeno%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-AV6gncBIWT8/VUNCsFuS2wI/AAAAAAAAAf8/kF6QjGj3joA/s889-no/Jalapeno%2B01%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400]https://lh6.googleusercontent.com/-AV6gncBIWT8/VUNCsFuS2wI/AAAAAAAAAf8/kF6QjGj3joA/s889-no/Jalapeno%2B01%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-2t8sejOxv7Y/VU4AjTbo-iI/AAAAAAAAAmE/zzByZChaIyE/s889-no/Jalapeno%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-AV6gncBIWT8/VUNCsFuS2wI/AAAAAAAAAf8/kF6QjGj3joA/s889-no/Jalapeno%2B01%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg) ![](https://lh4.googleusercontent.com/-2t8sejOxv7Y/VU4AjTbo-iI/AAAAAAAAAmE/zzByZChaIyE/s889-no/Jalapeno%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg)
 
 
 **...Andrew...** 09-05-2015
@@ -907,41 +907,41 @@ Jalapeno
 
 Black Pearl
 
-[https://lh6.googleusercontent.com/-te_OxoHKVJE/VU4AgmtBxFI/AAAAAAAAApM/gso4PXjMWbA/s889-no/Black%2BPearl%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-OWf8slKW9AA/VTOiI_K4wHI/AAAAAAAAAWk/CRoPzs8ttJg/s889-no/Black%2BPearl%2B19%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg] [img height=400]https://lh6.googleusercontent.com/-OWf8slKW9AA/VTOiI_K4wHI/AAAAAAAAAWk/CRoPzs8ttJg/s889-no/Black%2BPearl%2B19%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-te_OxoHKVJE/VU4AgmtBxFI/AAAAAAAAApM/gso4PXjMWbA/s889-no/Black%2BPearl%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-OWf8slKW9AA/VTOiI_K4wHI/AAAAAAAAAWk/CRoPzs8ttJg/s889-no/Black%2BPearl%2B19%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg) ![](https://lh6.googleusercontent.com/-te_OxoHKVJE/VU4AgmtBxFI/AAAAAAAAApM/gso4PXjMWbA/s889-no/Black%2BPearl%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg)
 
 Numex Twilight
 
-[https://lh4.googleusercontent.com/-V4QMuaAhShE/VU4AkLGw93I/AAAAAAAAAmU/ryXfvylfXMk/s889-no/Numex%2BTwilight%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-iL-FOTAszug/VTOiI4eDQsI/AAAAAAAAAWo/XoLZQ5Gy2dM/s889-no/Numex%2BTwilight%2B19%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg] [img height=400]https://lh6.googleusercontent.com/-iL-FOTAszug/VTOiI4eDQsI/AAAAAAAAAWo/XoLZQ5Gy2dM/s889-no/Numex%2BTwilight%2B19%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-V4QMuaAhShE/VU4AkLGw93I/AAAAAAAAAmU/ryXfvylfXMk/s889-no/Numex%2BTwilight%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-iL-FOTAszug/VTOiI4eDQsI/AAAAAAAAAWo/XoLZQ5Gy2dM/s889-no/Numex%2BTwilight%2B19%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg) ![](https://lh4.googleusercontent.com/-V4QMuaAhShE/VU4AkLGw93I/AAAAAAAAAmU/ryXfvylfXMk/s889-no/Numex%2BTwilight%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg)
 
 Cayenne Long
 
 Вроде бы начал хорошо плодоносить.
 
-[https://lh6.googleusercontent.com/-G9R5oS1syBs/VU4AhjPAeGI/AAAAAAAAApM/IS7jEtlN0Mk/s889-no/Cayenne%2BLong%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-s_bEHylII8E/VU4P93YMJtI/AAAAAAAAAqE/gWsNopbTgr4/s889-no/Cayenne%2BLong%2B17%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015_1.jpg] [img height=400]https://lh6.googleusercontent.com/-s_bEHylII8E/VU4P93YMJtI/AAAAAAAAAqE/gWsNopbTgr4/s889-no/Cayenne%2BLong%2B17%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015_1.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-G9R5oS1syBs/VU4AhjPAeGI/AAAAAAAAApM/IS7jEtlN0Mk/s889-no/Cayenne%2BLong%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-s_bEHylII8E/VU4P93YMJtI/AAAAAAAAAqE/gWsNopbTgr4/s889-no/Cayenne%2BLong%2B17%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015_1.jpg) ![](https://lh6.googleusercontent.com/-G9R5oS1syBs/VU4AhjPAeGI/AAAAAAAAApM/IS7jEtlN0Mk/s889-no/Cayenne%2BLong%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg)
 
 Laminada
 
 Обрезал слишком длинный ствол, проснулся боковой побег.
 
-[https://lh6.googleusercontent.com/-AZaPQQMiHjc/VU4Aj1ZefTI/AAAAAAAAAmA/efZD_TxQHhY/s889-no/Laminada%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-985DzySAm_E/VU4QR4GbmxI/AAAAAAAAAqo/Fr3NtI9z7Rc/w867-h889-no/DSC_6225.jpg] [img height=400]https://lh6.googleusercontent.com/-985DzySAm_E/VU4QR4GbmxI/AAAAAAAAAqo/Fr3NtI9z7Rc/w867-h889-no/DSC_6225.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-AZaPQQMiHjc/VU4Aj1ZefTI/AAAAAAAAAmA/efZD_TxQHhY/s889-no/Laminada%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-985DzySAm_E/VU4QR4GbmxI/AAAAAAAAAqo/Fr3NtI9z7Rc/w867-h889-no/DSC_6225.jpg) ![](https://lh6.googleusercontent.com/-AZaPQQMiHjc/VU4Aj1ZefTI/AAAAAAAAAmA/efZD_TxQHhY/s889-no/Laminada%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg)
 
 Ямайский желтый
 
 Тоже обрезал
 
-[https://lh6.googleusercontent.com/-aLCKkSCZVh8/VU4Ath2OmcI/AAAAAAAAAog/_-EN5RkOmas/s889-no/%25D0%25AF%25D0%25BC%25D0%25B0%25D0%25B9%25D1%2581%25D0%25BA%25D0%25B8%25D0%25B9%2B%25D0%25B6%25D0%25B5%25D0%25BB%25D1%2582%25D1%258B%25D0%25B9%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img]](https://lh4.googleusercontent.com/FbCSvhU9kZqY8DDsvY1l7sj8o2SOYaALVzHzxDezlC4=w921-h889-no] [img height=400]https://lh4.googleusercontent.com/FbCSvhU9kZqY8DDsvY1l7sj8o2SOYaALVzHzxDezlC4=w921-h889-no[/img][/url] [url=https://lh6.googleusercontent.com/-aLCKkSCZVh8/VU4Ath2OmcI/AAAAAAAAAog/_-EN5RkOmas/s889-no/%25D0%25AF%25D0%25BC%25D0%25B0%25D0%25B9%25D1%2581%25D0%25BA%25D0%25B8%25D0%25B9%2B%25D0%25B6%25D0%25B5%25D0%25BB%25D1%2582%25D1%258B%25D0%25B9%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/FbCSvhU9kZqY8DDsvY1l7sj8o2SOYaALVzHzxDezlC4=w921-h889-no) ![](https://lh6.googleusercontent.com/-aLCKkSCZVh8/VU4Ath2OmcI/AAAAAAAAAog/_-EN5RkOmas/s889-no/%25D0%25AF%25D0%25BC%25D0%25B0%25D0%25B9%25D1%2581%25D0%25BA%25D0%25B8%25D0%25B9%2B%25D0%25B6%25D0%25B5%25D0%25BB%25D1%2582%25D1%258B%25D0%25B9%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg)
 
 Корона
 
 Слева фото от 02 апреля 2015 года. Внешне вроде бы не сильно изменилась, но плодоносить начала хорошо. Стоит в самом темном месте, на кокосе процветает плесень.
 
-[https://lh6.googleusercontent.com/-h8ogw0WB9Io/VU4Am76GzzI/AAAAAAAAAmw/Wa9wpLUMOAE/s889-no/%25D0%259A%25D0%25BE%25D1%2580%25D0%25BE%25D0%25BD%25D0%25B0%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-1iJGjS5-OYY/VShqpE2gr1I/AAAAAAAAAHU/aRjCPWaJkxw/w1055-h889-no/DSC_6219.jpg] [img height=400]https://lh6.googleusercontent.com/-1iJGjS5-OYY/VShqpE2gr1I/AAAAAAAAAHU/aRjCPWaJkxw/w1055-h889-no/DSC_6219.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-h8ogw0WB9Io/VU4Am76GzzI/AAAAAAAAAmw/Wa9wpLUMOAE/s889-no/%25D0%259A%25D0%25BE%25D1%2580%25D0%25BE%25D0%25BD%25D0%25B0%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-1iJGjS5-OYY/VShqpE2gr1I/AAAAAAAAAHU/aRjCPWaJkxw/w1055-h889-no/DSC_6219.jpg) ![](https://lh6.googleusercontent.com/-h8ogw0WB9Io/VU4Am76GzzI/AAAAAAAAAmw/Wa9wpLUMOAE/s889-no/%25D0%259A%25D0%25BE%25D1%2580%25D0%25BE%25D0%25BD%25D0%25B0%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg)
 
-[https://lh5.googleusercontent.com/-bMPHFI1kRmE/VU4Asd_CbaI/AAAAAAAAAoc/UXt_JDj6Tjs/w1229-h889-no/%25D0%259F%25D0%25BB%25D0%25B5%25D1%2581%25D0%25B5%25D0%25BD%25D1%258C.jpg[/img]](https://lh4.googleusercontent.com/-JpA52L-FCXc/VU4AnAjFrPI/AAAAAAAAAm8/kjl8opEGjr8/s889-no/%25D0%259A%25D0%25BE%25D1%2580%25D0%25BE%25D0%25BD%25D0%25B0%2B%25D0%25BF%25D0%25BB%25D0%25BE%25D0%25B4%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400]https://lh4.googleusercontent.com/-JpA52L-FCXc/VU4AnAjFrPI/AAAAAAAAAm8/kjl8opEGjr8/s889-no/%25D0%259A%25D0%25BE%25D1%2580%25D0%25BE%25D0%25BD%25D0%25B0%2B%25D0%25BF%25D0%25BB%25D0%25BE%25D0%25B4%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh5.googleusercontent.com/-bMPHFI1kRmE/VU4Asd_CbaI/AAAAAAAAAoc/UXt_JDj6Tjs/w1229-h889-no/%25D0%259F%25D0%25BB%25D0%25B5%25D1%2581%25D0%25B5%25D0%25BD%25D1%258C.jpg] [img height=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-JpA52L-FCXc/VU4AnAjFrPI/AAAAAAAAAm8/kjl8opEGjr8/s889-no/%25D0%259A%25D0%25BE%25D1%2580%25D0%25BE%25D0%25BD%25D0%25B0%2B%25D0%25BF%25D0%25BB%25D0%25BE%25D0%25B4%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg) ![](https://lh5.googleusercontent.com/-bMPHFI1kRmE/VU4Asd_CbaI/AAAAAAAAAoc/UXt_JDj6Tjs/w1229-h889-no/%25D0%259F%25D0%25BB%25D0%25B5%25D1%2581%25D0%25B5%25D0%25BD%25D1%258C.jpg)
 
 Пиковая Дама
 
-[https://lh6.googleusercontent.com/-E8miMVpHhV8/VU4Aq1CQy1I/AAAAAAAAAn8/6wD2vr4Rvl0/s889-no/%25D0%259F%25D0%25B8%25D0%25BA%25D0%25BE%25D0%25B2%25D0%25B0%25D1%258F%2B%25D0%2594%25D0%25B0%25D0%25BC%25D0%25B0%2B%25D0%25BF%25D0%25BB%25D0%25BE%25D0%25B4%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img]](https://lh4.googleusercontent.com/-UZTlwYRG9Kc/VTEib2o6_SI/AAAAAAAAAUU/qg2fnyw2dxc/s889-no/DSC_6613.jpg] [img height=400]https://lh4.googleusercontent.com/-UZTlwYRG9Kc/VTEib2o6_SI/AAAAAAAAAUU/qg2fnyw2dxc/s889-no/DSC_6613.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-vCbbsiB5v3E/VU4Aqo8zaZI/AAAAAAAAAos/RQUanonvbZ4/s889-no/%25D0%259F%25D0%25B8%25D0%25BA%25D0%25BE%25D0%25B2%25D0%25B0%25D1%258F%2B%25D0%2594%25D0%25B0%25D0%25BC%25D0%25B0%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400]https://lh4.googleusercontent.com/-vCbbsiB5v3E/VU4Aqo8zaZI/AAAAAAAAAos/RQUanonvbZ4/s889-no/%25D0%259F%25D0%25B8%25D0%25BA%25D0%25BE%25D0%25B2%25D0%25B0%25D1%258F%2B%25D0%2594%25D0%25B0%25D0%25BC%25D0%25B0%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-E8miMVpHhV8/VU4Aq1CQy1I/AAAAAAAAAn8/6wD2vr4Rvl0/s889-no/%25D0%259F%25D0%25B8%25D0%25BA%25D0%25BE%25D0%25B2%25D0%25B0%25D1%258F%2B%25D0%2594%25D0%25B0%25D0%25BC%25D0%25B0%2B%25D0%25BF%25D0%25BB%25D0%25BE%25D0%25B4%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-UZTlwYRG9Kc/VTEib2o6_SI/AAAAAAAAAUU/qg2fnyw2dxc/s889-no/DSC_6613.jpg) ![](https://lh4.googleusercontent.com/-vCbbsiB5v3E/VU4Aqo8zaZI/AAAAAAAAAos/RQUanonvbZ4/s889-no/%25D0%259F%25D0%25B8%25D0%25BA%25D0%25BE%25D0%25B2%25D0%25B0%25D1%258F%2B%25D0%2594%25D0%25B0%25D0%25BC%25D0%25B0%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg) ![](https://lh6.googleusercontent.com/-E8miMVpHhV8/VU4Aq1CQy1I/AAAAAAAAAn8/6wD2vr4Rvl0/s889-no/%25D0%259F%25D0%25B8%25D0%25BA%25D0%25BE%25D0%25B2%25D0%25B0%25D1%258F%2B%25D0%2594%25D0%25B0%25D0%25BC%25D0%25B0%2B%25D0%25BF%25D0%25BB%25D0%25BE%25D0%25B4%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg)
 
 С перцами все.
 
@@ -949,17 +949,17 @@ Laminada
 
 Невероятно пахнет!
 
-[https://lh6.googleusercontent.com/-cnVj-pSd0vc/VU4AmSuKppI/AAAAAAAAAms/tfUECWZyXyw/s889-no/%25D0%2591%25D0%25B0%25D0%25B7%25D0%25B8%25D0%25BB%25D0%25B8%25D0%25BA%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-tHZrxHpYbHI/VTOiIh_MBLI/AAAAAAAAAWg/4cp3Pr5Ttzs/s889-no/%25D0%2591%25D0%25B0%25D0%25B7%25D0%25B8%25D0%25BB%25D0%25B8%25D0%25BA%2B%25D0%25A1%25D0%25B5%25D1%2580%25D1%258C%25D0%25BE%25D1%2580%2B%25D0%2591%25D0%25B0%25D0%25B7%25D0%25B5%25D0%25BB%25D1%258C%2B19%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg] [img height=400]https://lh6.googleusercontent.com/-tHZrxHpYbHI/VTOiIh_MBLI/AAAAAAAAAWg/4cp3Pr5Ttzs/s889-no/%25D0%2591%25D0%25B0%25D0%25B7%25D0%25B8%25D0%25BB%25D0%25B8%25D0%25BA%2B%25D0%25A1%25D0%25B5%25D1%2580%25D1%258C%25D0%25BE%25D1%2580%2B%25D0%2591%25D0%25B0%25D0%25B7%25D0%25B5%25D0%25BB%25D1%258C%2B19%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-cnVj-pSd0vc/VU4AmSuKppI/AAAAAAAAAms/tfUECWZyXyw/s889-no/%25D0%2591%25D0%25B0%25D0%25B7%25D0%25B8%25D0%25BB%25D0%25B8%25D0%25BA%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-tHZrxHpYbHI/VTOiIh_MBLI/AAAAAAAAAWg/4cp3Pr5Ttzs/s889-no/%25D0%2591%25D0%25B0%25D0%25B7%25D0%25B8%25D0%25BB%25D0%25B8%25D0%25BA%2B%25D0%25A1%25D0%25B5%25D1%2580%25D1%258C%25D0%25BE%25D1%2580%2B%25D0%2591%25D0%25B0%25D0%25B7%25D0%25B5%25D0%25BB%25D1%258C%2B19%2B%25D0%25B0%25D0%25BF%25D1%2580%25D0%25B5%25D0%25BB%25D1%258F%2B2015.jpg) ![](https://lh6.googleusercontent.com/-cnVj-pSd0vc/VU4AmSuKppI/AAAAAAAAAms/tfUECWZyXyw/s889-no/%25D0%2591%25D0%25B0%25D0%25B7%25D0%25B8%25D0%25BB%25D0%25B8%25D0%25BA%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg)
 
 и помидоры:
 
 Вот Ред Робин 1, которому я ничего не делал, и Ред Робин 2, которому я на первом месяце пообрывал кисти и часть боковых побегов. Разница налицо, первый уже отплодоносил, а второй только завязывать начал, зато пошикарнее смотрится.
 
-[https://lh6.googleusercontent.com/-YXlBq5CZsfs/VU4AtWegWTI/AAAAAAAAAoY/AIeE5IFoJGY/s889-no/%25D0%25A0%25D0%25B5%25D0%25B4%2B%25D0%25A0%25D0%25BE%25D0%25B1%25D0%25B8%25D0%25BD%2B2.jpg[/img]](https://lh4.googleusercontent.com/-OIQ5BLwbFgA/VU4Ar7vhYwI/AAAAAAAAAoo/yxE067vWBYM/s889-no/%25D0%25A0%25D0%25B5%25D0%25B4%2B%25D0%25A0%25D0%25BE%25D0%25B1%25D0%25B8%25D0%25BD%2B1%2B%25D0%25B0.jpg] [img height=400]https://lh4.googleusercontent.com/-OIQ5BLwbFgA/VU4Ar7vhYwI/AAAAAAAAAoo/yxE067vWBYM/s889-no/%25D0%25A0%25D0%25B5%25D0%25B4%2B%25D0%25A0%25D0%25BE%25D0%25B1%25D0%25B8%25D0%25BD%2B1%2B%25D0%25B0.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-YXlBq5CZsfs/VU4AtWegWTI/AAAAAAAAAoY/AIeE5IFoJGY/s889-no/%25D0%25A0%25D0%25B5%25D0%25B4%2B%25D0%25A0%25D0%25BE%25D0%25B1%25D0%25B8%25D0%25BD%2B2.jpg] [img height=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-OIQ5BLwbFgA/VU4Ar7vhYwI/AAAAAAAAAoo/yxE067vWBYM/s889-no/%25D0%25A0%25D0%25B5%25D0%25B4%2B%25D0%25A0%25D0%25BE%25D0%25B1%25D0%25B8%25D0%25BD%2B1%2B%25D0%25B0.jpg) ![](https://lh6.googleusercontent.com/-YXlBq5CZsfs/VU4AtWegWTI/AAAAAAAAAoY/AIeE5IFoJGY/s889-no/%25D0%25A0%25D0%25B5%25D0%25B4%2B%25D0%25A0%25D0%25BE%25D0%25B1%25D0%25B8%25D0%25BD%2B2.jpg)
 
 Вот такой урожай :), здесь без 3 штук, которые дети спёрли :). И вот так я его обрил, хочу, чтобы повыше был, наподобие бонсая, бесформенная куча листвы не особо красиво выглядит.
 
-[https://lh4.googleusercontent.com/-JI93CNkf6Zg/VU4AtAJRgQI/AAAAAAAAAoU/SKKDSjonfjI/s889-no/%25D0%25A0%25D0%25B5%25D0%25B4%2B%25D0%25A0%25D0%25BE%25D0%25B1%25D0%25B8%25D0%25BD%2B1%2B%25D0%25B4.jpg[/img]](https://lh6.googleusercontent.com/-7jfJPSwN8cQ/VU4AsJEeD_I/AAAAAAAAAok/RejHz4GPay8/s889-no/%25D0%25A0%25D0%25B5%25D0%25B4%2B%25D0%25A0%25D0%25BE%25D0%25B1%25D0%25B8%25D0%25BD%2B1%2B%25D0%25B1.jpg] [img height=400]https://lh6.googleusercontent.com/-7jfJPSwN8cQ/VU4AsJEeD_I/AAAAAAAAAok/RejHz4GPay8/s889-no/%25D0%25A0%25D0%25B5%25D0%25B4%2B%25D0%25A0%25D0%25BE%25D0%25B1%25D0%25B8%25D0%25BD%2B1%2B%25D0%25B1.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-JI93CNkf6Zg/VU4AtAJRgQI/AAAAAAAAAoU/SKKDSjonfjI/s889-no/%25D0%25A0%25D0%25B5%25D0%25B4%2B%25D0%25A0%25D0%25BE%25D0%25B1%25D0%25B8%25D0%25BD%2B1%2B%25D0%25B4.jpg] [img height=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-7jfJPSwN8cQ/VU4AsJEeD_I/AAAAAAAAAok/RejHz4GPay8/s889-no/%25D0%25A0%25D0%25B5%25D0%25B4%2B%25D0%25A0%25D0%25BE%25D0%25B1%25D0%25B8%25D0%25BD%2B1%2B%25D0%25B1.jpg) ![](https://lh4.googleusercontent.com/-JI93CNkf6Zg/VU4AtAJRgQI/AAAAAAAAAoU/SKKDSjonfjI/s889-no/%25D0%25A0%25D0%25B5%25D0%25B4%2B%25D0%25A0%25D0%25BE%25D0%25B1%25D0%25B8%25D0%25BD%2B1%2B%25D0%25B4.jpg)
 
 
 **lidia** 10-05-2015
@@ -1002,7 +1002,7 @@ Laminada
 
 Приехало наконец-то вот это чудо:
 
-[https://lh4.googleusercontent.com/-Sp6RlCX-hi0/VViQreKDG0I/AAAAAAAAAtA/oAah6UZayb4/w1343-h889-no/DSC_7339.jpg[/img]](http://arduino.ru/] [img width=800){:target="_blank"}
+![](https://lh4.googleusercontent.com/-Sp6RlCX-hi0/VViQreKDG0I/AAAAAAAAAtA/oAah6UZayb4/w1343-h889-no/DSC_7339.jpg)
 
 В процессе освоения собрал люксометр и прошелся по квартире:
 
@@ -1022,11 +1022,11 @@ Laminada
 
 А теперь, вот под такими лампами у меня росла рассада перцев в первый месяц-полтора (первую сделал из двух 120-сантиметровых люминисцентки, вторую из экономки 80 Ватт, отражатель самодельный, в виде склеенного из картона конуса, внутри обклеенного обычной пищевой фольгой:
 
-[https://lh6.googleusercontent.com/-s73gMzyMPfQ/VViQrdHZ6SI/AAAAAAAAAtE/4ovbXiFAyeA/s889-no/DSC_7329.jpg[/img]](https://lh4.googleusercontent.com/-7bHKYbS0INk/VViQrQgC1ZI/AAAAAAAAAs4/g_MiIBxlOg8/s889-no/DSC_7326.jpg] [img width=400]https://lh4.googleusercontent.com/-7bHKYbS0INk/VViQrQgC1ZI/AAAAAAAAAs4/g_MiIBxlOg8/s889-no/DSC_7326.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-s73gMzyMPfQ/VViQrdHZ6SI/AAAAAAAAAtE/4ovbXiFAyeA/s889-no/DSC_7329.jpg] [img width=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-7bHKYbS0INk/VViQrQgC1ZI/AAAAAAAAAs4/g_MiIBxlOg8/s889-no/DSC_7326.jpg) ![](https://lh6.googleusercontent.com/-s73gMzyMPfQ/VViQrdHZ6SI/AAAAAAAAAtE/4ovbXiFAyeA/s889-no/DSC_7329.jpg)
 
 И вот такие результаты:
 
-[https://lh6.googleusercontent.com/-1laSEK7LbwQ/VViUvUAYOZI/AAAAAAAAAuM/2LDGX5LruDc/w868-h109-no/%25D0%25A2%25D0%25B0%25D0%25B1%25D0%25BB%25D0%25B8%25D1%2586%25D0%25B0%2B%25D0%25BE%25D1%2581%25D0%25B2%25D0%25B5%25D1%2589%25D0%25B5%25D0%25BD%25D0%25BD%25D0%25BE%25D1%2581%25D1%2582%25D0%25B8.jpg[/img]](https://lh6.googleusercontent.com/-1laSEK7LbwQ/VViUvUAYOZI/AAAAAAAAAuM/2LDGX5LruDc/w868-h109-no/%25D0%25A2%25D0%25B0%25D0%25B1%25D0%25BB%25D0%25B8%25D1%2586%25D0%25B0%2B%25D0%25BE%25D1%2581%25D0%25B2%25D0%25B5%25D1%2589%25D0%25B5%25D0%25BD%25D0%25BD%25D0%25BE%25D1%2581%25D1%2582%25D0%25B8.jpg] [img width=800){:target="_blank"}
+![](https://lh6.googleusercontent.com/-1laSEK7LbwQ/VViUvUAYOZI/AAAAAAAAAuM/2LDGX5LruDc/w868-h109-no/%25D0%25A2%25D0%25B0%25D0%25B1%25D0%25BB%25D0%25B8%25D1%2586%25D0%25B0%2B%25D0%25BE%25D1%2581%25D0%25B2%25D0%25B5%25D1%2589%25D0%25B5%25D0%25BD%25D0%25BD%25D0%25BE%25D1%2581%25D1%2582%25D0%25B8.jpg)
 
 А я удивляюсь, почему у меня с Черной жемчужины («Маленького чуда») антоциан убежал :)
 
@@ -1034,11 +1034,11 @@ Laminada
 
 Созрело уже два плода у Лисенка (сегодня ровно 100 дней):
 
-[https://lh4.googleusercontent.com/-k7WWY3PhUjc/VViQjDGU0yI/AAAAAAAAAsU/4xypctwhvtY/s889-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA_2%2B17%2B%25D0%25BC%25D0%25B0%25D1%258F.jpg[/img]](https://lh3.googleusercontent.com/OraKxLtXozfJusdnzOH3sRlk5DaPAOS_kLZrIY5Vvwo=s889-no] [img width=400]https://lh3.googleusercontent.com/OraKxLtXozfJusdnzOH3sRlk5DaPAOS_kLZrIY5Vvwo=s889-no[/img][/url] [url=https://lh4.googleusercontent.com/-k7WWY3PhUjc/VViQjDGU0yI/AAAAAAAAAsU/4xypctwhvtY/s889-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA_2%2B17%2B%25D0%25BC%25D0%25B0%25D1%258F.jpg] [img width=400){:target="_blank"}
+![](https://lh3.googleusercontent.com/OraKxLtXozfJusdnzOH3sRlk5DaPAOS_kLZrIY5Vvwo=s889-no) ![](https://lh4.googleusercontent.com/-k7WWY3PhUjc/VViQjDGU0yI/AAAAAAAAAsU/4xypctwhvtY/s889-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA_2%2B17%2B%25D0%25BC%25D0%25B0%25D1%258F.jpg)
 
 И продолжает созревать Лисенок F1. Цвет обалденный, что-то морковно-мандариновое, очень сочный и красочный.
 
-[https://lh4.googleusercontent.com/-YILmTw6cxn0/VViRdjJlJwI/AAAAAAAAAts/--VaxvKk73k/s889-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2BF1%2Bb%2B17%2B%25D0%25BC%25D0%25B0%25D1%258F.jpg[/img]](https://lh6.googleusercontent.com/-RFskYRM4yT4/VViQh61SimI/AAAAAAAAAsY/U2VYq7pb_Zk/s889-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2BF1%2Ba%2B17%2B%25D0%25BC%25D0%25B0%25D1%258F.jpg] [img height=400]https://lh6.googleusercontent.com/-RFskYRM4yT4/VViQh61SimI/AAAAAAAAAsY/U2VYq7pb_Zk/s889-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2BF1%2Ba%2B17%2B%25D0%25BC%25D0%25B0%25D1%258F.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-YILmTw6cxn0/VViRdjJlJwI/AAAAAAAAAts/--VaxvKk73k/s889-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2BF1%2Bb%2B17%2B%25D0%25BC%25D0%25B0%25D1%258F.jpg] [img height=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-RFskYRM4yT4/VViQh61SimI/AAAAAAAAAsY/U2VYq7pb_Zk/s889-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2BF1%2Ba%2B17%2B%25D0%25BC%25D0%25B0%25D1%258F.jpg) ![](https://lh4.googleusercontent.com/-YILmTw6cxn0/VViRdjJlJwI/AAAAAAAAAts/--VaxvKk73k/s889-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2BF1%2Bb%2B17%2B%25D0%25BC%25D0%25B0%25D1%258F.jpg)
 
 
 **...Andrew...** 30-05-2015
@@ -1047,11 +1047,11 @@ Laminada
 
 Лисенок
 
-[https://lh4.googleusercontent.com/-zVTIi9jOeGk/VWnbkhoSPqI/AAAAAAAAAvQ/o1cIxS7zxWE/s887-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2B%25D1%2583%25D1%2580%25D0%25BE%25D0%25B6%25D0%25B0%25D0%25B9%2B30%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-xHAjEFotUMA/VWnbjWP2gpI/AAAAAAAAAvA/2pgIOTGYd0s/s887-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2B30%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img width=400]https://lh6.googleusercontent.com/-xHAjEFotUMA/VWnbjWP2gpI/AAAAAAAAAvA/2pgIOTGYd0s/s887-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2B30%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-zVTIi9jOeGk/VWnbkhoSPqI/AAAAAAAAAvQ/o1cIxS7zxWE/s887-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2B%25D1%2583%25D1%2580%25D0%25BE%25D0%25B6%25D0%25B0%25D0%25B9%2B30%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-xHAjEFotUMA/VWnbjWP2gpI/AAAAAAAAAvA/2pgIOTGYd0s/s887-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2B30%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg) ![](https://lh4.googleusercontent.com/-zVTIi9jOeGk/VWnbkhoSPqI/AAAAAAAAAvQ/o1cIxS7zxWE/s887-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2B%25D1%2583%25D1%2580%25D0%25BE%25D0%25B6%25D0%25B0%25D0%25B9%2B30%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg)
 
 Лисенок F1
 
-[https://lh6.googleusercontent.com/-4Z69VN4ie6o/VWnbjZRCSzI/AAAAAAAAAvM/aVpdw2ez33Y/s887-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2BF1%2B%25D1%2583%25D1%2580%25D0%25BE%25D0%25B6%25D0%25B0%25D0%25B9%2B30%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img]](https://lh4.googleusercontent.com/-IwbTRKm0Tlk/VWnbjOg1VwI/AAAAAAAAAvI/O1AEoCKLqlQ/s887-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2BF1%2B30%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400]https://lh4.googleusercontent.com/-IwbTRKm0Tlk/VWnbjOg1VwI/AAAAAAAAAvI/O1AEoCKLqlQ/s887-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2BF1%2B30%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-4Z69VN4ie6o/VWnbjZRCSzI/AAAAAAAAAvM/aVpdw2ez33Y/s887-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2BF1%2B%25D1%2583%25D1%2580%25D0%25BE%25D0%25B6%25D0%25B0%25D0%25B9%2B30%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-IwbTRKm0Tlk/VWnbjOg1VwI/AAAAAAAAAvI/O1AEoCKLqlQ/s887-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2BF1%2B30%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg) ![](https://lh6.googleusercontent.com/-4Z69VN4ie6o/VWnbjZRCSzI/AAAAAAAAAvM/aVpdw2ez33Y/s887-no/%25D0%259B%25D0%25B8%25D1%2581%25D0%25B5%25D0%25BD%25D0%25BE%25D0%25BA%2BF1%2B%25D1%2583%25D1%2580%25D0%25BE%25D0%25B6%25D0%25B0%25D0%25B9%2B30%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg)
 
 
 **orgail** 31-05-2015
@@ -1089,13 +1089,13 @@ Laminada
 
 115 дней. Блин, чё с ним делать то ?
 
-[https://lh4.googleusercontent.com/-ctLIuDs3FnA/VXgz21QeDyI/AAAAAAAAAwM/4R3TOQ2Gjyg/w1183-h887-no/DSC_7395.jpg[/img]](https://lh6.googleusercontent.com/-UpuCfKrsoOE/VXgz2vAOlII/AAAAAAAAAwI/kR3v8BeAJns/w1183-h887-no/DSC_7396.jpg] [img width=400]https://lh6.googleusercontent.com/-UpuCfKrsoOE/VXgz2vAOlII/AAAAAAAAAwI/kR3v8BeAJns/w1183-h887-no/DSC_7396.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-ctLIuDs3FnA/VXgz21QeDyI/AAAAAAAAAwM/4R3TOQ2Gjyg/w1183-h887-no/DSC_7395.jpg] [img width=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-UpuCfKrsoOE/VXgz2vAOlII/AAAAAAAAAwI/kR3v8BeAJns/w1183-h887-no/DSC_7396.jpg) ![](https://lh4.googleusercontent.com/-ctLIuDs3FnA/VXgz21QeDyI/AAAAAAAAAwM/4R3TOQ2Gjyg/w1183-h887-no/DSC_7395.jpg)
 
 Связать, как елку новогоднюю ?
 
 А вот Red Savina, уже под сотню плодов. Вопрос, впрочем, тот же: чё с ними делать то ? ))) Кто-нибудь солил/мариновал, съедобными становятся ? На овощи то еще не сезон.
 
-[https://lh6.googleusercontent.com/-SBKYDPK-9ew/VXgz25vK_jI/AAAAAAAAAwQ/wvC_ItsgldI/w1109-h887-no/DSC_7399.jpg[/img]](https://lh6.googleusercontent.com/-SBKYDPK-9ew/VXgz25vK_jI/AAAAAAAAAwQ/wvC_ItsgldI/w1109-h887-no/DSC_7399.jpg] [img height=400){:target="_blank"} 
+![](https://lh6.googleusercontent.com/-SBKYDPK-9ew/VXgz25vK_jI/AAAAAAAAAwQ/wvC_ItsgldI/w1109-h887-no/DSC_7399.jpg) 
 
 
 **lidia** 10-06-2015
@@ -1307,51 +1307,51 @@ Laminada
 
 С самой молодости (с 2 месяцев) он показал пятнистость на листьях и с тех пор медленно чах. Что ему нужно, я так и не понял. Дважды мерял дренаж, все в норме. Сегодня в дренаже 1700ppm и 5.5рН. Единственное объяснение, что на самом деле он F1 (еле уловимо, но отличается от остальных Jalapeno), и возможно словил какую нежизнеспособную мутацию.
 
-[https://lh5.googleusercontent.com/-Wft-PfmdtqY/VYWk2pCaoaI/AAAAAAAAA0A/zCNSZcUuEpI/w1340-h887-no/DSC_7474.jpg[/img]](https://lh4.googleusercontent.com/-2t8sejOxv7Y/VU4AjTbo-iI/AAAAAAAAAmE/zzByZChaIyE/s889-no/Jalapeno%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img width=400]https://lh4.googleusercontent.com/-2t8sejOxv7Y/VU4AjTbo-iI/AAAAAAAAAmE/zzByZChaIyE/s889-no/Jalapeno%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-fQDWVYwPqgs/VYWkoOV-1cI/AAAAAAAAAxY/64GnvITxvec/s887-no/Jalapeno%2B20%2B%25D0%25B8%25D1%258E%25D0%25BD%25D1%258F%2B2015.jpg] [img width=400]https://lh6.googleusercontent.com/-fQDWVYwPqgs/VYWkoOV-1cI/AAAAAAAAAxY/64GnvITxvec/s887-no/Jalapeno%2B20%2B%25D0%25B8%25D1%258E%25D0%25BD%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh5.googleusercontent.com/-Wft-PfmdtqY/VYWk2pCaoaI/AAAAAAAAA0A/zCNSZcUuEpI/w1340-h887-no/DSC_7474.jpg] [img height=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-2t8sejOxv7Y/VU4AjTbo-iI/AAAAAAAAAmE/zzByZChaIyE/s889-no/Jalapeno%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg) ![](https://lh6.googleusercontent.com/-fQDWVYwPqgs/VYWkoOV-1cI/AAAAAAAAAxY/64GnvITxvec/s887-no/Jalapeno%2B20%2B%25D0%25B8%25D1%258E%25D0%25BD%25D1%258F%2B2015.jpg) ![](https://lh5.googleusercontent.com/-Wft-PfmdtqY/VYWk2pCaoaI/AAAAAAAAA0A/zCNSZcUuEpI/w1340-h887-no/DSC_7474.jpg)
 
-[https://lh3.googleusercontent.com/-66kQJ-eOkU0/VYWk4pc2m-I/AAAAAAAAAzo/vo2U6L1aFE0/w1001-h887-no/%25D0%259F%25D0%25B0%25D0%25BD%25D0%25BE%25D1%2580%25D0%25B0%25D0%25BC%25D0%25B0_%25D0%25B1%25D0%25B5%25D0%25B7_%25D0%25BD%25D0%25B0%25D0%25B7%25D0%25B2%25D0%25B0%25D0%25BD%25D0%25B8%25D1%258F1.jpg[/img]](https://lh5.googleusercontent.com/-jhRT_yvRfwk/VYWk1aHJB7I/AAAAAAAAAyk/Dyw8Rv4tiwM/w1340-h887-no/DSC_7418.jpg] [img height=400]https://lh5.googleusercontent.com/-jhRT_yvRfwk/VYWk1aHJB7I/AAAAAAAAAyk/Dyw8Rv4tiwM/w1340-h887-no/DSC_7418.jpg[/img][/url] [url=https://lh3.googleusercontent.com/-66kQJ-eOkU0/VYWk4pc2m-I/AAAAAAAAAzo/vo2U6L1aFE0/w1001-h887-no/%25D0%259F%25D0%25B0%25D0%25BD%25D0%25BE%25D1%2580%25D0%25B0%25D0%25BC%25D0%25B0_%25D0%25B1%25D0%25B5%25D0%25B7_%25D0%25BD%25D0%25B0%25D0%25B7%25D0%25B2%25D0%25B0%25D0%25BD%25D0%25B8%25D1%258F1.jpg] [img height=400){:target="_blank"}
+![](https://lh5.googleusercontent.com/-jhRT_yvRfwk/VYWk1aHJB7I/AAAAAAAAAyk/Dyw8Rv4tiwM/w1340-h887-no/DSC_7418.jpg) ![](https://lh3.googleusercontent.com/-66kQJ-eOkU0/VYWk4pc2m-I/AAAAAAAAAzo/vo2U6L1aFE0/w1001-h887-no/%25D0%259F%25D0%25B0%25D0%25BD%25D0%25BE%25D1%2580%25D0%25B0%25D0%25BC%25D0%25B0_%25D0%25B1%25D0%25B5%25D0%25B7_%25D0%25BD%25D0%25B0%25D0%25B7%25D0%25B2%25D0%25B0%25D0%25BD%25D0%25B8%25D1%258F1.jpg)
 
 Далее реанимация. Прошлогодние, у которых в марту дренаж был под 3000ррм и под 3.4рН. И которых я реанимировал, проливая гидрокарбонатами с крана (некоторых содой), затем водой осмоса.
 
 Cayenne Long. Выглядит не ахти, но это потому что все листья прошлогодние. Новых не нарастил, зато нарастил небольшой урожай (на фото уже оставшийся, раньше парочку плодов уже оборвал).
 
-[https://lh6.googleusercontent.com/-XTEFBKe4e90/VYWk3J2IKvI/AAAAAAAAAz8/rhFcpbP1zP8/s887-no/DSC_7522.jpg[/img]](https://lh4.googleusercontent.com/-DAf5E_YFUWs/VYWkoV4m0zI/AAAAAAAAAxs/zl2SzuoGKN4/s887-no/Cayenne%2BLong%2B20%2B%25D0%25B8%25D1%258E%25D0%25BD%25D1%258F%2B2015.jpg] [img width=400]https://lh4.googleusercontent.com/-DAf5E_YFUWs/VYWkoV4m0zI/AAAAAAAAAxs/zl2SzuoGKN4/s887-no/Cayenne%2BLong%2B20%2B%25D0%25B8%25D1%258E%25D0%25BD%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-XTEFBKe4e90/VYWk3J2IKvI/AAAAAAAAAz8/rhFcpbP1zP8/s887-no/DSC_7522.jpg] [img width=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-DAf5E_YFUWs/VYWkoV4m0zI/AAAAAAAAAxs/zl2SzuoGKN4/s887-no/Cayenne%2BLong%2B20%2B%25D0%25B8%25D1%258E%25D0%25BD%25D1%258F%2B2015.jpg) ![](https://lh6.googleusercontent.com/-XTEFBKe4e90/VYWk3J2IKvI/AAAAAAAAAz8/rhFcpbP1zP8/s887-no/DSC_7522.jpg)
 
 Ямайский желтый. После реанимации был полностью обрезан, как видно, воскрес уже полностью. Сегодня дренаж 1300ррм и 5.2рН.
 
-[https://lh4.googleusercontent.com/-wO0zXGvB5iY/VYWkqSEhd1I/AAAAAAAAAxo/_VncachgSC0/s887-no/%25D0%25AF%25D0%25BC%25D0%25B0%25D0%25B9%25D1%2581%25D0%25BA%25D0%25B8%25D0%25B9%2B%25D0%25B6%25D0%25B5%25D0%25BB%25D1%2582%25D1%258B%25D0%25B9%2B20%2B%25D0%25B8%25D1%258E%25D0%25BD%25D1%258F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-aLCKkSCZVh8/VU4Ath2OmcI/AAAAAAAAAog/_-EN5RkOmas/s889-no/%25D0%25AF%25D0%25BC%25D0%25B0%25D0%25B9%25D1%2581%25D0%25BA%25D0%25B8%25D0%25B9%2B%25D0%25B6%25D0%25B5%25D0%25BB%25D1%2582%25D1%258B%25D0%25B9%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400]https://lh6.googleusercontent.com/-aLCKkSCZVh8/VU4Ath2OmcI/AAAAAAAAAog/_-EN5RkOmas/s889-no/%25D0%25AF%25D0%25BC%25D0%25B0%25D0%25B9%25D1%2581%25D0%25BA%25D0%25B8%25D0%25B9%2B%25D0%25B6%25D0%25B5%25D0%25BB%25D1%2582%25D1%258B%25D0%25B9%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-wO0zXGvB5iY/VYWkqSEhd1I/AAAAAAAAAxo/_VncachgSC0/s887-no/%25D0%25AF%25D0%25BC%25D0%25B0%25D0%25B9%25D1%2581%25D0%25BA%25D0%25B8%25D0%25B9%2B%25D0%25B6%25D0%25B5%25D0%25BB%25D1%2582%25D1%258B%25D0%25B9%2B20%2B%25D0%25B8%25D1%258E%25D0%25BD%25D1%258F%2B2015.jpg] [img height=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-aLCKkSCZVh8/VU4Ath2OmcI/AAAAAAAAAog/_-EN5RkOmas/s889-no/%25D0%25AF%25D0%25BC%25D0%25B0%25D0%25B9%25D1%2581%25D0%25BA%25D0%25B8%25D0%25B9%2B%25D0%25B6%25D0%25B5%25D0%25BB%25D1%2582%25D1%258B%25D0%25B9%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg) ![](https://lh4.googleusercontent.com/-wO0zXGvB5iY/VYWkqSEhd1I/AAAAAAAAAxo/_VncachgSC0/s887-no/%25D0%25AF%25D0%25BC%25D0%25B0%25D0%25B9%25D1%2581%25D0%25BA%25D0%25B8%25D0%25B9%2B%25D0%25B6%25D0%25B5%25D0%25BB%25D1%2582%25D1%258B%25D0%25B9%2B20%2B%25D0%25B8%25D1%258E%25D0%25BD%25D1%258F%2B2015.jpg)
 
 Laminada. Тоже воскресла. Небольшая пятнистость. Подозреваю перелив, горшок глубокий, стоит в тени. Дренаж сегодня 900ррм, 5.8рН.
 
-[https://lh6.googleusercontent.com/-kHlndUdnFPY/VYWk1DfIYUI/AAAAAAAAAys/KYYwpYYGoRQ/s887-no/DSC_7434.jpg[/img]](https://lh6.googleusercontent.com/-AZaPQQMiHjc/VU4Aj1ZefTI/AAAAAAAAAmA/efZD_TxQHhY/s889-no/Laminada%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img width=400]https://lh6.googleusercontent.com/-AZaPQQMiHjc/VU4Aj1ZefTI/AAAAAAAAAmA/efZD_TxQHhY/s889-no/Laminada%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-limykdAbyT4/VYWkpNcgGRI/AAAAAAAAAxk/Q2_lxmXUSdQ/s887-no/Laminada%2B20%2B%25D0%25B8%25D1%258E%25D0%25BD%25D1%258F%2B2015.jpg] [img width=400]https://lh4.googleusercontent.com/-limykdAbyT4/VYWkpNcgGRI/AAAAAAAAAxk/Q2_lxmXUSdQ/s887-no/Laminada%2B20%2B%25D0%25B8%25D1%258E%25D0%25BD%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-kHlndUdnFPY/VYWk1DfIYUI/AAAAAAAAAys/KYYwpYYGoRQ/s887-no/DSC_7434.jpg] [img height=400){:target="_blank"} 
+![](https://lh6.googleusercontent.com/-AZaPQQMiHjc/VU4Aj1ZefTI/AAAAAAAAAmA/efZD_TxQHhY/s889-no/Laminada%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg) ![](https://lh4.googleusercontent.com/-limykdAbyT4/VYWkpNcgGRI/AAAAAAAAAxk/Q2_lxmXUSdQ/s887-no/Laminada%2B20%2B%25D0%25B8%25D1%258E%25D0%25BD%25D1%258F%2B2015.jpg) ![](https://lh6.googleusercontent.com/-kHlndUdnFPY/VYWk1DfIYUI/AAAAAAAAAys/KYYwpYYGoRQ/s887-no/DSC_7434.jpg) 
 
 Теперь свежие перцы.
 
 Aji Omnicolor. 
 
-[https://lh6.googleusercontent.com/-JClvxBUVM14/VYWkofgmoMI/AAAAAAAAAxU/1mPriwxQpSo/s887-no/Aji%2BOmnicolor20%2B%25D0%25B8%25D1%258E%25D0%25BD%25D1%258F%2B2015.jpg[/img]](https://lh4.googleusercontent.com/-r3GxFXrsqas/VU4AgiiWMfI/AAAAAAAAApM/DNRI4rFvEsk/s889-no/Aji%2BOmnicolor%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img width=400]https://lh4.googleusercontent.com/-r3GxFXrsqas/VU4AgiiWMfI/AAAAAAAAApM/DNRI4rFvEsk/s889-no/Aji%2BOmnicolor%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-JClvxBUVM14/VYWkofgmoMI/AAAAAAAAAxU/1mPriwxQpSo/s887-no/Aji%2BOmnicolor20%2B%25D0%25B8%25D1%258E%25D0%25BD%25D1%258F%2B2015.jpg] [img width=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-r3GxFXrsqas/VU4AgiiWMfI/AAAAAAAAApM/DNRI4rFvEsk/s889-no/Aji%2BOmnicolor%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg) ![](https://lh6.googleusercontent.com/-JClvxBUVM14/VYWkofgmoMI/AAAAAAAAAxU/1mPriwxQpSo/s887-no/Aji%2BOmnicolor20%2B%25D0%25B8%25D1%258E%25D0%25BD%25D1%258F%2B2015.jpg)
 
 Tabasko.
 
-[https://lh6.googleusercontent.com/-CkyPwKza08E/VYWkpQsaWtI/AAAAAAAAAxw/BT7fI1ThIAM/s887-no/Tabasko%2B20%2B%25D0%25B8%25D1%258E%25D0%25BD%25D1%258F%2B2015.jpg[/img]](https://lh4.googleusercontent.com/-HZk1-MoYhuw/VU4AmAoFVDI/AAAAAAAAAnA/WUfFmyVbDCY/s889-no/Tabasko%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400]https://lh4.googleusercontent.com/-HZk1-MoYhuw/VU4AmAoFVDI/AAAAAAAAAnA/WUfFmyVbDCY/s889-no/Tabasko%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-CkyPwKza08E/VYWkpQsaWtI/AAAAAAAAAxw/BT7fI1ThIAM/s887-no/Tabasko%2B20%2B%25D0%25B8%25D1%258E%25D0%25BD%25D1%258F%2B2015.jpg] [img height=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-HZk1-MoYhuw/VU4AmAoFVDI/AAAAAAAAAnA/WUfFmyVbDCY/s889-no/Tabasko%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg) ![](https://lh6.googleusercontent.com/-CkyPwKza08E/VYWkpQsaWtI/AAAAAAAAAxw/BT7fI1ThIAM/s887-no/Tabasko%2B20%2B%25D0%25B8%25D1%258E%25D0%25BD%25D1%258F%2B2015.jpg)
 
 И его плоды: один обычный, другой мумифицированный (стоит на балконе, иногда там сауна случается, если забуду окно открыть).
 
-[https://lh4.googleusercontent.com/-mQGkZDjxCYk/VYWk2NkvTwI/AAAAAAAAAy0/IHgf0ucdkWQ/s887-no/DSC_7464.jpg[/img]](https://lh6.googleusercontent.com/-fYaUaPXf1Vw/VYWk1I5McoI/AAAAAAAAAyc/AShd5YsjCvs/s887-no/DSC_7445.jpg] [img width=400]https://lh6.googleusercontent.com/-fYaUaPXf1Vw/VYWk1I5McoI/AAAAAAAAAyc/AShd5YsjCvs/s887-no/DSC_7445.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-mQGkZDjxCYk/VYWk2NkvTwI/AAAAAAAAAy0/IHgf0ucdkWQ/s887-no/DSC_7464.jpg] [img width=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-fYaUaPXf1Vw/VYWk1I5McoI/AAAAAAAAAyc/AShd5YsjCvs/s887-no/DSC_7445.jpg) ![](https://lh4.googleusercontent.com/-mQGkZDjxCYk/VYWk2NkvTwI/AAAAAAAAAy0/IHgf0ucdkWQ/s887-no/DSC_7464.jpg)
 
 Маленькое чудо (Черная жемчужина?). 
 
-[https://lh4.googleusercontent.com/-y2fdx7UwKXQ/VYWkpjczz_I/AAAAAAAAAx4/1q8b7VVtNv8/s887-no/%25D0%259C%25D0%25B0%25D0%25BB%25D0%25B5%25D0%25BD%25D1%258C%25D0%25BA%25D0%25BE%25D0%25B5%2B%25D1%2587%25D1%2583%25D0%25B4%25D0%25BE%2B20%2B%25D0%25B8%25D1%258E%25D0%25BD%25D1%258F%2B2015.jpg[/img]](https://lh6.googleusercontent.com/-FagGIvznFrU/VU4ApALrFsI/AAAAAAAAAo8/3wZQZ3jGgaQ/s889-no/%25D0%259C%25D0%25B0%25D0%25BB%25D0%25B5%25D0%25BD%25D1%258C%25D0%25BA%25D0%25BE%25D0%25B5%2B%25D1%2587%25D1%2583%25D0%25B4%25D0%25BE%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg] [img height=400]https://lh6.googleusercontent.com/-FagGIvznFrU/VU4ApALrFsI/AAAAAAAAAo8/3wZQZ3jGgaQ/s889-no/%25D0%259C%25D0%25B0%25D0%25BB%25D0%25B5%25D0%25BD%25D1%258C%25D0%25BA%25D0%25BE%25D0%25B5%2B%25D1%2587%25D1%2583%25D0%25B4%25D0%25BE%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-y2fdx7UwKXQ/VYWkpjczz_I/AAAAAAAAAx4/1q8b7VVtNv8/s887-no/%25D0%259C%25D0%25B0%25D0%25BB%25D0%25B5%25D0%25BD%25D1%258C%25D0%25BA%25D0%25BE%25D0%25B5%2B%25D1%2587%25D1%2583%25D0%25B4%25D0%25BE%2B20%2B%25D0%25B8%25D1%258E%25D0%25BD%25D1%258F%2B2015.jpg] [img height=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-FagGIvznFrU/VU4ApALrFsI/AAAAAAAAAo8/3wZQZ3jGgaQ/s889-no/%25D0%259C%25D0%25B0%25D0%25BB%25D0%25B5%25D0%25BD%25D1%258C%25D0%25BA%25D0%25BE%25D0%25B5%2B%25D1%2587%25D1%2583%25D0%25B4%25D0%25BE%2B09%2B%25D0%25BC%25D0%25B0%25D1%258F%2B2015.jpg) ![](https://lh4.googleusercontent.com/-y2fdx7UwKXQ/VYWkpjczz_I/AAAAAAAAAx4/1q8b7VVtNv8/s887-no/%25D0%259C%25D0%25B0%25D0%25BB%25D0%25B5%25D0%25BD%25D1%258C%25D0%25BA%25D0%25BE%25D0%25B5%2B%25D1%2587%25D1%2583%25D0%25B4%25D0%25BE%2B20%2B%25D0%25B8%25D1%258E%25D0%25BD%25D1%258F%2B2015.jpg)
 
-[https://lh5.googleusercontent.com/-EyE2wVUJArA/VYWk5AEj4-I/AAAAAAAAAzk/XEZD42o0OBg/w1344-h887-no/%25D0%259F%25D0%25B0%25D0%25BD%25D0%25BE%25D1%2580%25D0%25B0%25D0%25BC%25D0%25B0_%25D0%25B1%25D0%25B5%25D0%25B7_%25D0%25BD%25D0%25B0%25D0%25B7%25D0%25B2%25D0%25B0%25D0%25BD%25D0%25B8%25D1%258F3.jpg[/img]](https://lh5.googleusercontent.com/-EyE2wVUJArA/VYWk5AEj4-I/AAAAAAAAAzk/XEZD42o0OBg/w1344-h887-no/%25D0%259F%25D0%25B0%25D0%25BD%25D0%25BE%25D1%2580%25D0%25B0%25D0%25BC%25D0%25B0_%25D0%25B1%25D0%25B5%25D0%25B7_%25D0%25BD%25D0%25B0%25D0%25B7%25D0%25B2%25D0%25B0%25D0%25BD%25D0%25B8%25D1%258F3.jpg] [img width=500){:target="_blank"}
+![](https://lh5.googleusercontent.com/-EyE2wVUJArA/VYWk5AEj4-I/AAAAAAAAAzk/XEZD42o0OBg/w1344-h887-no/%25D0%259F%25D0%25B0%25D0%25BD%25D0%25BE%25D1%2580%25D0%25B0%25D0%25BC%25D0%25B0_%25D0%25B1%25D0%25B5%25D0%25B7_%25D0%25BD%25D0%25B0%25D0%25B7%25D0%25B2%25D0%25B0%25D0%25BD%25D0%25B8%25D1%258F3.jpg)
 
 А вот еще какое чудо у меня выросло на кусочке помидора))).
 
 Фотографировал Гелиосом на макрокольцах с приставленным к нему Индустаром наоборот. Толщина головок примерно равна толщине волоса, т.е. около 0.03-0.10 мм. 
 
-[https://lh6.googleusercontent.com/-Zp7gVjULrj0/VYWk31CHiLI/AAAAAAAAAz4/SSmussRZbh0/w1147-h887-no/DSC_7543.jpg[/img]](https://lh6.googleusercontent.com/-LHiZy_n_nCE/VYWk3fI80FI/AAAAAAAAAzM/8_3aU8BykpU/s887-no/DSC_7528.jpg] [img height=400]https://lh6.googleusercontent.com/-LHiZy_n_nCE/VYWk3fI80FI/AAAAAAAAAzM/8_3aU8BykpU/s887-no/DSC_7528.jpg[/img][/url] [url=https://lh6.googleusercontent.com/-Zp7gVjULrj0/VYWk31CHiLI/AAAAAAAAAz4/SSmussRZbh0/w1147-h887-no/DSC_7543.jpg] [img height=400){:target="_blank"} 
+![](https://lh6.googleusercontent.com/-LHiZy_n_nCE/VYWk3fI80FI/AAAAAAAAAzM/8_3aU8BykpU/s887-no/DSC_7528.jpg) ![](https://lh6.googleusercontent.com/-Zp7gVjULrj0/VYWk31CHiLI/AAAAAAAAAz4/SSmussRZbh0/w1147-h887-no/DSC_7543.jpg) 
 
-[https://lh4.googleusercontent.com/-pRpobploaJA/VYWk4b7nqWI/AAAAAAAAAzw/6a0a-w3a414/w1105-h887-no/DSC_7552.jpg[/img]](https://lh4.googleusercontent.com/-affTatS_16s/VYWk4NWAOMI/AAAAAAAAAz0/WHmey4LpBo8/w845-h887-no/DSC_7550.jpg] [img height=400]https://lh4.googleusercontent.com/-affTatS_16s/VYWk4NWAOMI/AAAAAAAAAz0/WHmey4LpBo8/w845-h887-no/DSC_7550.jpg[/img][/url] [url=https://lh4.googleusercontent.com/-pRpobploaJA/VYWk4b7nqWI/AAAAAAAAAzw/6a0a-w3a414/w1105-h887-no/DSC_7552.jpg] [img height=400){:target="_blank"} 
+![](https://lh4.googleusercontent.com/-affTatS_16s/VYWk4NWAOMI/AAAAAAAAAz0/WHmey4LpBo8/w845-h887-no/DSC_7550.jpg) ![](https://lh4.googleusercontent.com/-pRpobploaJA/VYWk4b7nqWI/AAAAAAAAAzw/6a0a-w3a414/w1105-h887-no/DSC_7552.jpg) 
 
 
 **Vad** 20-06-2015
@@ -1408,15 +1408,15 @@ Tabasko.
 
 Вот такое вот Оранжевое ~~настроение~~ чудо
 
-[https://lh4.googleusercontent.com/-i4WiYqXj-CI/VY_widuN-qI/AAAAAAAAA1M/XEXcZyeTBZQ/s849-no/DSC_7663.jpg[/img]](https://lh4.googleusercontent.com/-i4WiYqXj-CI/VY_widuN-qI/AAAAAAAAA1M/XEXcZyeTBZQ/s849-no/DSC_7663.jpg] [img height=400){:target="_blank"}
+![](https://lh4.googleusercontent.com/-i4WiYqXj-CI/VY_widuN-qI/AAAAAAAAA1M/XEXcZyeTBZQ/s849-no/DSC_7663.jpg)
 
 Это начал зреть Habanero Peach. Внизу два маленьких недоразумения из первой развилки получились.
 
-[https://lh5.googleusercontent.com/m515M4BWUzVkypgvh0TdYDFDUDJFSJHoN8pHalZl3vs=s849-no[/img]](https://lh5.googleusercontent.com/m515M4BWUzVkypgvh0TdYDFDUDJFSJHoN8pHalZl3vs=s849-no] [img height=400){:target="_blank"} 
+![](https://lh5.googleusercontent.com/m515M4BWUzVkypgvh0TdYDFDUDJFSJHoN8pHalZl3vs=s849-no) 
 
 А вот начал уже созревать монстр Scotch Bonnet, который полбалкона занимает (слева внизу маленький желтый плодик выглядывает):
 
-[https://lh6.googleusercontent.com/-zc6-CdCRRVU/VY_wiGcr6iI/AAAAAAAAA1E/K8EGpFvcjiQ/w562-h849-no/DSC_7672.jpg[/img]](https://lh6.googleusercontent.com/-zc6-CdCRRVU/VY_wiGcr6iI/AAAAAAAAA1E/K8EGpFvcjiQ/w562-h849-no/DSC_7672.jpg] [img width=400){:target="_blank"}
+![](https://lh6.googleusercontent.com/-zc6-CdCRRVU/VY_wiGcr6iI/AAAAAAAAA1E/K8EGpFvcjiQ/w562-h849-no/DSC_7672.jpg)
 
 
 **...Andrew...** 07-07-2015
@@ -1425,17 +1425,17 @@ Tabasko.
 
 Red Savina. Слева первая волна (примерно 3 недели назад), справа сегодня.
 
-[https://lh5.googleusercontent.com/-giAGuc7QGhI/VZwqMZ2y5VI/AAAAAAAAA28/ZprODI01IVk/s622-no/DSC_7685.jpg[/img]](https://lh3.googleusercontent.com/-q8oOQRuaQrM/VZwqLuRvO9I/AAAAAAAAA2Q/Us4Iqdg0ikg/s622-no/2015-06-11%2B19-37-29.JPG] [img width=400]https://lh3.googleusercontent.com/-q8oOQRuaQrM/VZwqLuRvO9I/AAAAAAAAA2Q/Us4Iqdg0ikg/s622-no/2015-06-11%2B19-37-29.JPG[/img][/url] [url=https://lh5.googleusercontent.com/-uFnHI-OBP-M/VZwqME4c9MI/AAAAAAAAA2c/-0OM6_XtPzw/s622-no/DSC_7683.jpg] [img width=400]https://lh5.googleusercontent.com/-uFnHI-OBP-M/VZwqME4c9MI/AAAAAAAAA2c/-0OM6_XtPzw/s622-no/DSC_7683.jpg[/img][/url] [url=https://lh5.googleusercontent.com/-giAGuc7QGhI/VZwqMZ2y5VI/AAAAAAAAA28/ZprODI01IVk/s622-no/DSC_7685.jpg] [img width=400){:target="_blank"}
+![](https://lh3.googleusercontent.com/-q8oOQRuaQrM/VZwqLuRvO9I/AAAAAAAAA2Q/Us4Iqdg0ikg/s622-no/2015-06-11%2B19-37-29.JPG) ![](https://lh5.googleusercontent.com/-uFnHI-OBP-M/VZwqME4c9MI/AAAAAAAAA2c/-0OM6_XtPzw/s622-no/DSC_7683.jpg) ![](https://lh5.googleusercontent.com/-giAGuc7QGhI/VZwqMZ2y5VI/AAAAAAAAA28/ZprODI01IVk/s622-no/DSC_7685.jpg)
 
-[https://lh5.googleusercontent.com/-7rZuzB39prk/VZwqNJeml5I/AAAAAAAAA2w/irEt65afEHw/w622-h412-no/DSC_7699.jpg[/img]](https://lh5.googleusercontent.com/-NpfQVviaQ3I/VZwqL6lIPTI/AAAAAAAAA3E/-7HY2lRxKC4/w622-h412-no/DSC_7676.jpg] [img height=400]https://lh5.googleusercontent.com/-NpfQVviaQ3I/VZwqL6lIPTI/AAAAAAAAA3E/-7HY2lRxKC4/w622-h412-no/DSC_7676.jpg[/img][/url] [url=https://lh5.googleusercontent.com/-7rZuzB39prk/VZwqNJeml5I/AAAAAAAAA2w/irEt65afEHw/w622-h412-no/DSC_7699.jpg] [img height=400){:target="_blank"}
+![](https://lh5.googleusercontent.com/-NpfQVviaQ3I/VZwqL6lIPTI/AAAAAAAAA3E/-7HY2lRxKC4/w622-h412-no/DSC_7676.jpg) ![](https://lh5.googleusercontent.com/-7rZuzB39prk/VZwqNJeml5I/AAAAAAAAA2w/irEt65afEHw/w622-h412-no/DSC_7699.jpg)
 
 Оранжевое чудо
 
-[https://lh3.googleusercontent.com/-_I0cQy0MeWg/VZwqL4pWtHI/AAAAAAAAA2U/Z3KzpJIOpyc/s622-no/DSC_7679.jpg[/img]](https://lh3.googleusercontent.com/-_I0cQy0MeWg/VZwqL4pWtHI/AAAAAAAAA2U/Z3KzpJIOpyc/s622-no/DSC_7679.jpg] [img width=400){:target="_blank"} 
+![](https://lh3.googleusercontent.com/-_I0cQy0MeWg/VZwqL4pWtHI/AAAAAAAAA2U/Z3KzpJIOpyc/s622-no/DSC_7679.jpg) 
 
 И еще кое-что по мелочи, общий план.
 
-[https://lh5.googleusercontent.com/-aU3WYB5WP84/VZwqNwQJEXI/AAAAAAAAA24/fGi331rFnQs/w622-h412-no/%25D0%25A3%25D1%2580%25D0%25BE%25D0%25B6%25D0%25B0%25D0%25B9.jpg[/img]](https://lh5.googleusercontent.com/-aU3WYB5WP84/VZwqNwQJEXI/AAAAAAAAA24/fGi331rFnQs/w622-h412-no/%25D0%25A3%25D1%2580%25D0%25BE%25D0%25B6%25D0%25B0%25D0%25B9.jpg] [img height=600){:target="_blank"} 
+![](https://lh5.googleusercontent.com/-aU3WYB5WP84/VZwqNwQJEXI/AAAAAAAAA24/fGi331rFnQs/w622-h412-no/%25D0%25A3%25D1%2580%25D0%25BE%25D0%25B6%25D0%25B0%25D0%25B9.jpg) 
 
 Вся Savina пошла на аджику (около 3 л), надеюсь крышки не поразъедает. :)
 
@@ -1484,7 +1484,7 @@ Red Savina. Слева первая волна (примерно 3 недели 
 
 NPK у меня до этого был 150:48:315. Решил я месяц назад поднаддать фосфору и перешел на 140:110:360 (Вместо одного грамма Valagro Master 3:11:38, сделал полграмма того же мастера и плюс к нему "Чистый лист осеннее" 5:20:25). И вот так сейчас выглядят мои хабанеры (все не стал фоткать, картина идентична на всех 5 хабанерах).
 
-[https://lh5.googleusercontent.com/-sonYHM0-TR0/Vf6xahxTvbI/AAAAAAAAA70/HY3qoWKJeNU/w1339-h887-no/DSC_8056.jpg[/img]](https://lh3.googleusercontent.com/-HVom37uAXqw/Vf6xaQA0ggI/AAAAAAAAA7w/Sx6yGF32QEQ/w1339-h887-no/DSC_8055.jpg] [img height=400]https://lh3.googleusercontent.com/-HVom37uAXqw/Vf6xaQA0ggI/AAAAAAAAA7w/Sx6yGF32QEQ/w1339-h887-no/DSC_8055.jpg[/img][/url] [url=https://lh5.googleusercontent.com/-sonYHM0-TR0/Vf6xahxTvbI/AAAAAAAAA70/HY3qoWKJeNU/w1339-h887-no/DSC_8056.jpg] [img height=400){:target="_blank"}
+![](https://lh3.googleusercontent.com/-HVom37uAXqw/Vf6xaQA0ggI/AAAAAAAAA7w/Sx6yGF32QEQ/w1339-h887-no/DSC_8055.jpg) ![](https://lh5.googleusercontent.com/-sonYHM0-TR0/Vf6xahxTvbI/AAAAAAAAA70/HY3qoWKJeNU/w1339-h887-no/DSC_8056.jpg)
 
 Конечно, в этом уравнении кроме фосфора изменились и другие переменные (была обрезка, повзрослели, стало меньше жары), но отметить факт следует.
 
@@ -1495,17 +1495,17 @@ NPK у меня до этого был 150:48:315. Решил я месяц на
 
 В прошлом году решить попробовать что-нибудь чуть "потехнологичнее". Собрал простейшую установку. Горшок с керамзитом стоит внутри ведра (до половины), на дне которого (тоже до половины) раствор. Горшок не касается раствора. В растворе слабая минипомпа (с декоративного фонтанчика осталась), которая качает раствор на верх горшка, периодически проливая керамзит. Эдакий гибрид подпора, NFT и капельного полива. Из других вариантов выбрал её за компактность и бесшумность. 
 
-[http://lostpic.net/images/2016/10/14/fac084155339c570191728acfc1935bd.jpg[/img]](http://lostpic.net/images/2016/10/14/201b2d59ae54217d0b140cdff0c7d4f7.jpg][img width=300]http://lostpic.net/images/2016/10/14/201b2d59ae54217d0b140cdff0c7d4f7.jpg[/img][/url] [url=http://lostpic.net/images/2016/10/14/1e64a6193552ef94e35a1a1370197d90.jpg][img width=400]http://lostpic.net/images/2016/10/14/1e64a6193552ef94e35a1a1370197d90.jpg[/img][/url] [url=http://lostpic.net/images/2016/10/14/fac084155339c570191728acfc1935bd.jpg][img width=400){:target="_blank"}
+![](http://lostpic.net/images/2016/10/14/201b2d59ae54217d0b140cdff0c7d4f7.jpg) ![](http://lostpic.net/images/2016/10/14/1e64a6193552ef94e35a1a1370197d90.jpg) ![](http://lostpic.net/images/2016/10/14/fac084155339c570191728acfc1935bd.jpg)
 
 Капает несколько миллилитров в секунду, включалась каждые 2 часа на 5 минут. Рядом с помпой совсем не старая советская сетевая вилка, как могло показаться :) На самом деле это щупы самодельного TDS-метра на Ардуине, который в режиме реального времени отображал ррм раствора. [Вот ссылка](http://www.anndrew.tk/){:target="_blank"} на сервер, где отображается информация с моего "коллайдера".
 
 Вот результат через 4 месяца, скосил в рассвете сил, нужно было место под лампой освободить. 
 
-[http://img11.lostpic.net/2017/02/12/1404d4ac834b4c5b3ee31422fdc7ed52.jpg[/img]](http://img11.lostpic.net/2017/01/14/150189c6ed8d6b2e93b753750e4e1430.jpg][img height=500]http://img11.lostpic.net/2017/01/14/150189c6ed8d6b2e93b753750e4e1430.jpg[/img][/url] [url=http://img11.lostpic.net/2017/02/04/1cb74d53e2e136d3fea544d54df88806.jpg][img height=500]http://img11.lostpic.net/2017/02/04/1cb74d53e2e136d3fea544d54df88806.jpg[/img][/url] [url=http://img11.lostpic.net/2017/02/12/1404d4ac834b4c5b3ee31422fdc7ed52.jpg][img height=500){:target="_blank"} 
+![](http://img11.lostpic.net/2017/01/14/150189c6ed8d6b2e93b753750e4e1430.jpg) ![](http://img11.lostpic.net/2017/02/04/1cb74d53e2e136d3fea544d54df88806.jpg) ![](http://img11.lostpic.net/2017/02/12/1404d4ac834b4c5b3ee31422fdc7ed52.jpg) 
 
 В этом году собрал уже вот такую установку: 
 
-[http://img11.lostpic.net/2017/03/05/cc24af538377936fc4334159969fab4f.jpg[/img]](http://img11.lostpic.net/2017/03/05/2cdcfa79b1906ab24947a94a0ebc8e4d.jpg][img height=500]http://img11.lostpic.net/2017/03/05/2cdcfa79b1906ab24947a94a0ebc8e4d.jpg[/img][/url] [url=http://img11.lostpic.net/2017/03/05/cc24af538377936fc4334159969fab4f.jpg][img height=500){:target="_blank"}
+![](http://img11.lostpic.net/2017/03/05/2cdcfa79b1906ab24947a94a0ebc8e4d.jpg) ![](http://img11.lostpic.net/2017/03/05/cc24af538377936fc4334159969fab4f.jpg)
 
 Во-первых, горшок взял побольше, 5 литров, прошлогодний опыт подсказал, что 2 литра слишком мало даже для аннуума, не говоря уже о хиненсе (в этом году посадил Devil&#039;s Tongue White). Тем более летнее солнце, а не только диодные лампы, и планируемая длительность выращивания болше.
 
@@ -1513,11 +1513,11 @@ NPK у меня до этого был 150:48:315. Решил я месяц на
 
 Теперь об "мозге" коллайдера. Вот так он выглядел в прошлом году:
 
-[http://img11.lostpic.net/2017/03/05/d2f084611fbede1cfe4c09b8fb03892c.jpg[/img]](http://img11.lostpic.net/2017/03/05/d2f084611fbede1cfe4c09b8fb03892c.jpg][img height=300){:target="_blank"}
+![](http://img11.lostpic.net/2017/03/05/d2f084611fbede1cfe4c09b8fb03892c.jpg)
 
 Вот таким стал сейчас.
 
-[http://img11.lostpic.net/2017/03/05/8a9a0341e1e52a15ab3e004df8f0b2e2.jpg[/img]](http://img11.lostpic.net/2017/03/05/8a9a0341e1e52a15ab3e004df8f0b2e2.jpg][img height=500){:target="_blank"}
+![](http://img11.lostpic.net/2017/03/05/8a9a0341e1e52a15ab3e004df8f0b2e2.jpg)
 
 Что изменилось:
 
@@ -1549,13 +1549,13 @@ PPM-метр раствора - как и раньше, электроды в в
 
 На помпу установил твердотельное реле вот такое:
 
-[http://img11.lostpic.net/2017/03/05/59d550bbe506ff5e0ac1f4d6db3700d8.jpg[/img]](http://img11.lostpic.net/2017/03/05/59d550bbe506ff5e0ac1f4d6db3700d8.jpg][img height=400){:target="_blank"}
+![](http://img11.lostpic.net/2017/03/05/59d550bbe506ff5e0ac1f4d6db3700d8.jpg)
 
 Шикарная штука, маленькая, бесшумная (обычное реле немного напрягало своими щелчками, слышно было в соседней комнате), управляется 3.3 вольтами, не нужно дополнительно тянуть для неё питание, цена доллар с небольшим. 
 
 При заходе на сервер Вемоса, он мне выдает вот такую страничку.
 
-[http://img11.lostpic.net/2017/03/05/4e6efaca31a057d899642f8184a74cfc.png[/img]](http://img11.lostpic.net/2017/03/05/4e6efaca31a057d899642f8184a74cfc.png][img height=500){:target="_blank"}
+![](http://img11.lostpic.net/2017/03/05/4e6efaca31a057d899642f8184a74cfc.png)
 
 Отображается инфа с датчиков, текущие установки. Справа поля для их изменения. При нажатии кнопки Setup, собираются данные с полей, если есть, берется текущее системное время для синхронизации с ним времени Вемоса, и отправляется в Вемос. Там данные записываются в EEPROM, при перезагрузке ничего не сбивается. 
 
@@ -1563,7 +1563,7 @@ PPM-метр раствора - как и раньше, электроды в в
 
 Прошло 4 месяца, картина сейчас следующая
 
-[http://img11.lostpic.net/2017/06/10/b483caaaec842684d973e9d2c7560e40.jpg[/img]](http://img11.lostpic.net/2017/06/10/0db093abcc95e01b4b98f01fc13c511b.jpg][img height=500]http://img11.lostpic.net/2017/06/10/0db093abcc95e01b4b98f01fc13c511b.jpg[/img][/url] [url=http://img11.lostpic.net/2017/06/10/b483caaaec842684d973e9d2c7560e40.jpg][img height=500){:target="_blank"}
+![](http://img11.lostpic.net/2017/06/10/0db093abcc95e01b4b98f01fc13c511b.jpg) ![](http://img11.lostpic.net/2017/06/10/b483caaaec842684d973e9d2c7560e40.jpg)
 
 
 **Vad** 13-06-2017
@@ -1610,7 +1610,7 @@ PPM-метр раствора - как и раньше, электроды в в
 
 Позже я добавил бОльшее ведро. В меньшем ведре, около 4 литров которое и где находятся корни и аэрация раствора ,проделал у дна два отверстия и вставил его во внешнее ведро около 12 литров. При смене раствора просто поднимаю перец вместе с меньшим ведром, раствор стекает во внешнюю ёмкость, выливаю остатки старого раствора и заливаю новый (до уровня горшка 8 литров получается), мне так показалось удобнее. 
 
-[http://img11.lostpic.net/2017/05/07/4284a90e7897f6888ccf7a7efbd4a4ba.jpg[/img]](http://img11.lostpic.net/2017/05/07/4284a90e7897f6888ccf7a7efbd4a4ba.jpg][img height=500){:target="_blank"} 
+![](http://img11.lostpic.net/2017/05/07/4284a90e7897f6888ccf7a7efbd4a4ba.jpg) 
 
 
 **...Andrew...** 13-06-2017
@@ -1653,7 +1653,7 @@ A0
 
 Далее видно, как в первые 30 минут перец выпивает около 14%, т.е. 1800х0.14&#8776;250 грамм воды. Далее скорость поглощения становится меньше и еще через 30 минут перец полностью напился и перешел в режим компенсации потерь от транспирации, выпивая примерно 1.2-1.5% в час, т.е. 20-25 грамм в час (условия: прямое садящееся солнце, температура 30).
 
-[http://img10.lostpic.net/2016/08/05/8a48ec94e0aa809322690dc9bae16e75.png[/img]](http://img10.lostpic.net/2016/08/05/8a48ec94e0aa809322690dc9bae16e75.png][img height=300){:target="_blank"}
+![](http://img10.lostpic.net/2016/08/05/8a48ec94e0aa809322690dc9bae16e75.png)
 
 
 **siv237** 13-06-2017
@@ -1666,7 +1666,7 @@ A0
 > 
 > Далее видно, как в первые 30 минут перец выпивает около 14%, т.е. 1800х0.14&#8776;250 грамм воды. Далее скорость поглощения становится меньше и еще через 30 минут перец полностью напился и перешел в режим компенсации потерь от транспирации, выпивая примерно 1.2-1.5% в час, т.е. 20-25 грамм в час (условия: прямое садящееся солнце, температура 30).
 > 
-> [http://img10.lostpic.net/2016/08/05/8a48ec94e0aa809322690dc9bae16e75.png[/img]](http://img10.lostpic.net/2016/08/05/8a48ec94e0aa809322690dc9bae16e75.png][img height=300){:target="_blank"}
+> ![](http://img10.lostpic.net/2016/08/05/8a48ec94e0aa809322690dc9bae16e75.png)
 
 С интерпретацией я бы поспорил, но не суть важно. Я хотел другую мысль донести.
 
@@ -2037,9 +2037,9 @@ A0
 
 Вот, что касается цифровых пинов, сконфигурированных на выход, цитата:
 
-[size=8pt]Выводы, сконфигурированные как порты вывода, находятся в низкоимпедансном состоянии. Данные выводы могут пропускать через себя достаточно большой ток. Выводы микросхемы Atmega могут быть источником (положительный) или приемником (отрицательный) тока до 40 мА для других устройств. Такого значения тока достаточно чтобы подключить светодиод (обязателен последовательно включенный резистор), датчики, но недостаточно для большинства реле, соленоидов и двигателей.
+Выводы, сконфигурированные как порты вывода, находятся в низкоимпедансном состоянии. Данные выводы могут пропускать через себя достаточно большой ток. Выводы микросхемы Atmega могут быть источником (положительный) или приемником (отрицательный) тока до 40 мА для других устройств. Такого значения тока достаточно чтобы подключить светодиод (обязателен последовательно включенный резистор), датчики, но недостаточно для большинства реле, соленоидов и двигателей.
 
-Короткие замыкания выводов Arduino или попытки подключить энергоемкие устройства могут повредить выходные транзисторы вывода или весь микроконтроллер Atmega. В большинстве случаев данные действия приведут к отключению вывода на микроконтроллере, но остальная часть схемы будет работать согласно программе. Рекомендуется к выходам платформы подключать устройства через резисторы 470 Ом или 1 кОм, если устройству не требуется больший ток для работы.[/size]
+Короткие замыкания выводов Arduino или попытки подключить энергоемкие устройства могут повредить выходные транзисторы вывода или весь микроконтроллер Atmega. В большинстве случаев данные действия приведут к отключению вывода на микроконтроллере, но остальная часть схемы будет работать согласно программе. Рекомендуется к выходам платформы подключать устройства через резисторы 470 Ом или 1 кОм, если устройству не требуется больший ток для работы.
 
 Если бы при подаче на Д1 единицы, Д2 вы делали бы как INPUT и подтягивали его к земле через пул-даун резистор 10 кОм, тогдя я бы понял.
 
@@ -2476,11 +2476,11 @@ P.s. Слова только все путают(((
 
 Добавил в установку УЗ датчик уровня раствора.
 
-[http://img11.lostpic.net/2017/06/17/ea172580197c45cc98ec6168941eadaf.jpg[/img]](http://img11.lostpic.net/2017/06/17/ea172580197c45cc98ec6168941eadaf.jpg][img height=300){:target="_blank"}
+![](http://img11.lostpic.net/2017/06/17/ea172580197c45cc98ec6168941eadaf.jpg)
 
 Вот только непонятка вылезла. Вот график за последние сутки:
 
-[http://img11.lostpic.net/2017/06/29/703f781e5faaa405aeb7c683ace4f3b1.png[/img]](http://img11.lostpic.net/2017/06/29/703f781e5faaa405aeb7c683ace4f3b1.png][img height=500){:target="_blank"}
+![](http://img11.lostpic.net/2017/06/29/703f781e5faaa405aeb7c683ace4f3b1.png)
 
 Отчетливо видно провалы. Уровень показывает стабильно, затем идет провал на 200мл (для датчика это около 4мм расстояния), через какое-то время возвращается в исходное положение. 
 
@@ -2656,7 +2656,7 @@ P.s. Слова только все путают(((
 
 Собрал сегодня урожай:
 
-[http://img12.lostpic.net/2018/03/10/74ee2c221c54e77567d0a2b3fce12414.jpg[/img]](http://img12.lostpic.net/2018/03/10/74ee2c221c54e77567d0a2b3fce12414.jpg][img width=500){:target="_blank"}
+![](http://img12.lostpic.net/2018/03/10/74ee2c221c54e77567d0a2b3fce12414.jpg)
 
 
 **Vad** 10-03-2018
@@ -2683,7 +2683,7 @@ P.s. Слова только все путают(((
 
 > Собрал сегодня урожай:
 > 
-> [http://img12.lostpic.net/2018/03/10/74ee2c221c54e77567d0a2b3fce12414.jpg[/img]](http://img12.lostpic.net/2018/03/10/74ee2c221c54e77567d0a2b3fce12414.jpg][img width=500){:target="_blank"}
+> ![](http://img12.lostpic.net/2018/03/10/74ee2c221c54e77567d0a2b3fce12414.jpg)
 
 Красота!
 

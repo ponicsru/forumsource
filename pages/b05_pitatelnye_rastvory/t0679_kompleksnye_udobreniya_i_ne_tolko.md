@@ -9,7 +9,7 @@ sidebar: ponics_sidebar
 
 Начну я
 
-[size=12pt]Россия[/size]
+Россия
 
 [iurl=http://agro03.ru/udobreniya.html]Agro03[/iurl] - удобрения КАЛЬЦЕНИТ, КРИСТАЛОН
 
@@ -27,7 +27,7 @@ sidebar: ponics_sidebar
 
 ---------------------------------------------------------------------------------
 
-[size=12pt]Украина[/size]
+Украина
 
 [iurl=http://www.gaben.com.ua/index.php?p=yara&amp;razd=minerl]Габен[/iurl] - удобрения Нутривант, Яра и др.
 

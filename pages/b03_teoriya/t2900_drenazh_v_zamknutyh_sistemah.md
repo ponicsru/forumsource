@@ -427,7 +427,7 @@ https://kartaslov.ru/значение-слова/засаливание
 
 **allex_step** 04-07-2018
 
-[www.youtube.com/watch?v=SQH1KTk8mrs[/size]](http://forum.ponics.ru/go.php?url=aHR0cHM6Ly93d3cueW91dHViZS5jb20vd2F0Y2g/dj1TUUgxS1RrOG1ycw==][size=2){:target="_blank"}
+[www.youtube.com/watch?v=SQH1KTk8mrs](http://forum.ponics.ru/go.php?url=aHR0cHM6Ly93d3cueW91dHViZS5jb20vd2F0Y2g/dj1TUUgxS1RrOG1ycw==){:target="_blank"}
 
 
 **simiko** 04-07-2018

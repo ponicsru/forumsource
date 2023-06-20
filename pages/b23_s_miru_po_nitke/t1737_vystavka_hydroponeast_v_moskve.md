@@ -128,8 +128,7 @@ sidebar: ponics_sidebar
 
 Цитата из википедии:
 
-[size=13px][font=sans-serif][/font][/size]
-> [size=13px][font=sans-serif]ДДТ — это исключительно эффективный и очень простой в получении инсектицид. Его получают [/font][/size][size=13px][font=sans-serif][серной кислоте](https://ru.wikipedia.org/wiki/%D0%9A%D0%BE%D0%BD%D0%B4%D0%B5%D0%BD%D1%81%D0%B0%D1%86%D0%B8%D1%8F_(%D1%85%D0%B8%D0%BC%D0%B8%D1%8F)]конденсацией[/url][/font][/size][size=13px][font=sans-serif][url=https://ru.wikipedia.org/wiki/%D0%A5%D0%BB%D0%BE%D1%80%D0%B1%D0%B5%D0%BD%D0%B7%D0%BE%D0%BB]хлорбензола[/url][/font][/size][size=13px][font=sans-serif] (C[/font][/size][font=sans-serif]6[/font][size=13px][font=sans-serif]H[/font][/size][font=sans-serif]5[/font][size=13px][font=sans-serif]Cl) с хлоралем (Cl[/font][/size][font=sans-serif]3[/font][size=13px][font=sans-serif]CCHO) в концентрированной [/font][/size][size=13px][font=sans-serif][url=https://ru.wikipedia.org/wiki/%D0%A1%D0%B5%D1%80%D0%BD%D0%B0%D1%8F_%D0%BA%D0%B8%D1%81%D0%BB%D0%BE%D1%82%D0%B0){:target="_blank"}[/font][/size][size=13px][font=sans-serif] (H[/font][/size][font=sans-serif]2[/font][size=13px][font=sans-serif]SO[/font][/size][font=sans-serif]4[/font][size=13px][font=sans-serif]).[/font][/size]
+> ДДТ — это исключительно эффективный и очень простой в получении инсектицид. Его получают [серной кислоте](https://ru.wikipedia.org/wiki/%D0%9A%D0%BE%D0%BD%D0%B4%D0%B5%D0%BD%D1%81%D0%B0%D1%86%D0%B8%D1%8F_(%D1%85%D0%B8%D0%BC%D0%B8%D1%8F)]конденсацией[/url][url=https://ru.wikipedia.org/wiki/%D0%A5%D0%BB%D0%BE%D1%80%D0%B1%D0%B5%D0%BD%D0%B7%D0%BE%D0%BB]хлорбензола[/url] (C6H5Cl) с хлоралем (Cl3CCHO) в концентрированной [url=https://ru.wikipedia.org/wiki/%D0%A1%D0%B5%D1%80%D0%BD%D0%B0%D1%8F_%D0%BA%D0%B8%D1%81%D0%BB%D0%BE%D1%82%D0%B0){:target="_blank"} (H2SO4).
 
 
 

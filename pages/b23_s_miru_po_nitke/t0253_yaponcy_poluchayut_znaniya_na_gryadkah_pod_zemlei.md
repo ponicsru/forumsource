@@ -53,6 +53,6 @@ sidebar: ponics_sidebar
 
 А если посмотреть в далёкое-далёкое будущее? Как говорится, есть мнение, что такие страны, как Япония, превратятся едва ли не в один гигантский город. И где будут выращивать японцы пищу? Может, Pasona O2 – это крошечный кусочек XXII века, приютившийся в подвале токийского небоскрёба? 
 
-[right]Источник: [Membrana](http://www.membrana.ru/articles/inventions/2007/08/02/175200.html){:target="_blank"}[/right]
+Источник: [Membrana](http://www.membrana.ru/articles/inventions/2007/08/02/175200.html){:target="_blank"}
 
 

@@ -51,6 +51,6 @@ sidebar: ponics_sidebar
 
 **allex_step** 30-03-2018
 
-как я понимаю 20%-ый раствор[size=2][font=verdana] 75%-ой[/font][font=verdana] ХЧ[/font][/size] Азотной кислоты и т.п.
+как я понимаю 20%-ый раствор 75%-ой ХЧ Азотной кислоты и т.п.
 
 

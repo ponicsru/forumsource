@@ -5,11 +5,11 @@ sidebar: ponics_sidebar
 
 **Oxy** 05-04-2013
 
-[size=14px][font=Tahoma]Энтузиасту-биологу [/size][size=12px][Генриху Стратону](http://www.ua-reporter.com/novosti/107167){:target="_blank"}[/size][size=14px][/font][/color][color=rgb(10, 10, 10)], проживающему в Ужгороде, удалось вывести новый сорт киви, способный пережить самые лютые зимы.[/size]
+Энтузиасту-биологу [Генриху Стратону](http://www.ua-reporter.com/novosti/107167){:target="_blank"}, проживающему в Ужгороде, удалось вывести новый сорт киви, способный пережить самые лютые зимы.
 
-Статья на русском: [size=78%][http://www.ua-reporter.com/novosti/107888](http://www.ua-reporter.com/novosti/107888){:target="_blank"}[/size]
+Статья на русском: [http://www.ua-reporter.com/novosti/107888](http://www.ua-reporter.com/novosti/107888){:target="_blank"}
 
-Статья на Украинском(другая совершенно): [size=78%][http://www.ua-reporter.com/novosti/79594](http://www.ua-reporter.com/novosti/79594){:target="_blank"}[/size]
+Статья на Украинском(другая совершенно): [http://www.ua-reporter.com/novosti/79594](http://www.ua-reporter.com/novosti/79594){:target="_blank"}
 
 
 **Coccinella** 05-04-2013

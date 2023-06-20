@@ -5,7 +5,7 @@ sidebar: ponics_sidebar
 
 **dzagigrow** 17-09-2012
 
-[size=12pt]О конференции и мини-выставке HydroponEast 2012.[/size]
+О конференции и мини-выставке HydroponEast 2012.
 
 Приглашаем Вас посетить конференцию и мини-выставку HydroponEast 2012.
 

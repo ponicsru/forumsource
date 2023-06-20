@@ -23,7 +23,7 @@ sidebar: ponics_sidebar
 
 [![](/imagehost/thumbs/2yoy.gif)](https://t.me/ponics_ru_files/10347){:target="_blank"} [![](/imagehost/thumbs/3vpv.gif)](https://t.me/ponics_ru_files/10348){:target="_blank"} [![](/imagehost/thumbs/5sts.gif)](https://t.me/ponics_ru_files/10349){:target="_blank"}
 
-[size=14pt]Мануал[/size]
+Мануал
 
 Зачем нужен КалькуляторЪ ?
 

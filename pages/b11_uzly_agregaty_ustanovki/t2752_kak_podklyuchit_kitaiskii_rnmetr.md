@@ -13,15 +13,15 @@ sidebar: ponics_sidebar
 
 Приводится скетч для ардуино, там указано только:
 
-[code]#define SensorPin 0 //pH meter Analog output to Arduino Analog Input 0[/code]
+#define SensorPin 0 //pH meter Analog output to Arduino Analog Input 0
 
 А что именно надо подключить к этому пину не сказано. Зато в конце скетча есть такой момент:
 
-[code]digitalWrite(13, HIGH);
+digitalWrite(13, HIGH);
 
 delay(800);
 
-digitalWrite(13, LOW);[/code]
+digitalWrite(13, LOW);
 
 Это они для примера, что можно делать что-то еще? 
 
@@ -37,11 +37,11 @@ digitalWrite(13, LOW);[/code]
 
 **allex_step** 01-11-2017
 
-[size=1em]P0 - аналоговый вход[/size]
+P0 - аналоговый вход
 
-[font=verdana][size=1em]T0 - TempComp1 (NC)[/size][/font]
+T0 - TempComp1 (NC)
 
-[font=verdana][size=1em]D0 - TempComp2 (NC)[/size][/font]
+D0 - TempComp2 (NC)
 
 [http://iarduino.ru/shop/Sensory-Datchiki/datchik-kislotnosti-zhidkosti-rn-metr.html](http://iarduino.ru/shop/Sensory-Datchiki/datchik-kislotnosti-zhidkosti-rn-metr.html){:target="_blank"}
 
@@ -83,11 +83,11 @@ Do это как сигнализация о том что пш достиг у�
 
 > А что именно надо подключить к этому пину не сказано. Зато в конце скетча есть такой момент:
 > 
-> [code]digitalWrite(13, HIGH);
+> digitalWrite(13, HIGH);
 > 
 > delay(800);
 > 
-> digitalWrite(13, LOW);[/code]
+> digitalWrite(13, LOW);
 > 
 > Это они для примера, что можно делать что-то еще? 
 > 
@@ -118,11 +118,11 @@ Do это как сигнализация о том что пш достиг у�
 
 **Пресвятой_ДжимБим** 01-11-2017
 
-> [size=1em]P0 - аналоговый вход[/size]
+> P0 - аналоговый вход
 > 
-> [font=verdana][size=1em]T0 - TempComp1 (NC)[/size][/font]
+> T0 - TempComp1 (NC)
 > 
-> [font=verdana][size=1em]D0 - TempComp2 (NC)[/size][/font]
+> D0 - TempComp2 (NC)
 > 
 > [http://iarduino.ru/shop/Sensory-Datchiki/datchik-kislotnosti-zhidkosti-rn-metr.html](http://iarduino.ru/shop/Sensory-Datchiki/datchik-kislotnosti-zhidkosti-rn-metr.html){:target="_blank"}
 
@@ -163,7 +163,7 @@ Do это как сигнализация о том что пш достиг у�
 
 То есть если электрод показывает изменение рН на одну единицу, то на самом деле произошло изменение на две единицы с лишним!
 
-[code]const float k=2.236;
+const float k=2.236;
 
 float f;
 
@@ -172,8 +172,6 @@ int Po = 1023-analogRead (pHpin);
 f = (float) Po;
 
 f *= k*14./1023.;
-
-[/code]
 
 
 **Vad** 02-11-2017

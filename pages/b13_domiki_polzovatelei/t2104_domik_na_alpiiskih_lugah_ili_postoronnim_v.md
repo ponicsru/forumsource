@@ -2414,7 +2414,7 @@ https://ru.wikipedia.org/wiki/%D0%94%D0%B8%D0%BB%D0%B0%D1%82%D0%BE%D0%BC%D0%B5%D
 
 [http://amperka.ru/product/triple-axis-accelerometer](http://amperka.ru/product/triple-axis-accelerometer){:target="_blank"}
 
-Если использовать систему рычагов, то можно прикинуть если диаметр изменился на 1мм угол наклона изменился на [size=14pt]n[/size] градусов и минут, 
+Если использовать систему рычагов, то можно прикинуть если диаметр изменился на 1мм угол наклона изменился на n градусов и минут, 
 
 Все просто и со вкусом :)
 
@@ -13115,8 +13115,6 @@ WeatherCoef =0.008 * (температура + ясность) + 0.4161
 
 Вдруг кому пригодится:
 
-[code]
-
 int sensorValue = 1023;
 
 int oldSensorValue = 1023;
@@ -13186,8 +13184,6 @@ oldSensorValue = sensorValue;
 }
 
 }
-
-[/code]
 
 
 **Gnevko** 07-03-2016
@@ -13627,8 +13623,6 @@ https://youtu.be/aWbaqkZQTUM
 
 В малине же ... наверняка на нижнем уровне на прерывания построено, но оно мне из Java не видно. В Java просто регистрируешь "прослушиватель" событий и все. Причем подтягивать самому ничего не нужно, есть встроенные 50K, которые можно при необходимости включать. Красота в общем :)
 
-[code]
-
 // create and register gpio pin listener
 
 setReedContact(GreenHouseController.getGPIO().provisionDigitalInputPin(RaspiPin.GPIO_12, PinPullResistance.PULL_DOWN));
@@ -13676,8 +13670,6 @@ getReedContact().addListener(new GpioPinListenerDigital()
 	}
 
 });
-
-[/code]
 
 
 **Vad** 02-04-2016

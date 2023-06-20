@@ -353,7 +353,7 @@ sidebar: ponics_sidebar
 
 **allex_step** 16-10-2017
 
-[font=verdana][www.youtube.com/watch?v=GlZHTMk3PBg](http://forum.ponics.ru/go.php?url=aHR0cHM6Ly93d3cueW91dHViZS5jb20vd2F0Y2g/dj1HbFpIVE1rM1BCZw==){:target="_blank"}[/font]
+[www.youtube.com/watch?v=GlZHTMk3PBg](http://forum.ponics.ru/go.php?url=aHR0cHM6Ly93d3cueW91dHViZS5jb20vd2F0Y2g/dj1HbFpIVE1rM1BCZw==){:target="_blank"}
 
 [https://www.youtube.com/watch?v=VhsCcR7YEXI](https://www.youtube.com/watch?v=VhsCcR7YEXI){:target="_blank"}
 
@@ -435,7 +435,7 @@ sidebar: ponics_sidebar
 
 **siv237** 17-10-2017
 
-> [font=verdana][www.youtube.com/watch?v=GlZHTMk3PBg](http://forum.ponics.ru/go.php?url=aHR0cHM6Ly93d3cueW91dHViZS5jb20vd2F0Y2g/dj1HbFpIVE1rM1BCZw==){:target="_blank"}[/font]
+> [www.youtube.com/watch?v=GlZHTMk3PBg](http://forum.ponics.ru/go.php?url=aHR0cHM6Ly93d3cueW91dHViZS5jb20vd2F0Y2g/dj1HbFpIVE1rM1BCZw==){:target="_blank"}
 > 
 > [https://www.youtube.com/watch?v=VhsCcR7YEXI](https://www.youtube.com/watch?v=VhsCcR7YEXI){:target="_blank"}
 
@@ -474,11 +474,11 @@ sidebar: ponics_sidebar
 
 полно материалов по перистальтическим дозаторам для аквариумов и т.п.
 
-> [font=verdana]Я как раз поэтому выбрал насосы с прямым подключением, что-бы иметь возможность псевдо шим-регулирования скорости налива.[/font]
+> Я как раз поэтому выбрал насосы с прямым подключением, что-бы иметь возможность псевдо шим-регулирования скорости налива.
 
-[font=verdana]а у меня такие насосы
+а у меня такие насосы
 
-![](https://ae01.alicdn.com/kf/HTB1nmMESFXXXXbqaXXXq6xXFXXXP/DC-Small-Dosing-Pump-12v-D2-2mm-DIY-Peristaltic-Tube-Head-For-Aquarium-Lab-Chemical-Lab.jpg_640x640.jpg)[/font]
+![](https://ae01.alicdn.com/kf/HTB1nmMESFXXXXbqaXXXq6xXFXXXP/DC-Small-Dosing-Pump-12v-D2-2mm-DIY-Peristaltic-Tube-Head-For-Aquarium-Lab-Chemical-Lab.jpg_640x640.jpg)
 
 [https://www.aliexpress.com/item/DC-Small-Dosing-Pump-12v-D2-2mm-DIY-Peristaltic-Tube-Head-For-Aquarium-Lab-Chemical-Lab/32810184954.html](https://www.aliexpress.com/item/DC-Small-Dosing-Pump-12v-D2-2mm-DIY-Peristaltic-Tube-Head-For-Aquarium-Lab-Chemical-Lab/32810184954.html){:target="_blank"}
 
@@ -507,7 +507,7 @@ sidebar: ponics_sidebar
 > 
 > Сколько же у вас наведено раствора?
 
-[font=verdana]у меня расход совсем никакой сейчас т.к. растишек две с половиной штуки всего[/font]
+у меня расход совсем никакой сейчас т.к. растишек две с половиной штуки всего
 
 > В любом случае, вы все еще сможете определить реальную концентрацию, если все взвешивали точно. Вам просто нужны точные весы с 0.01г, и точный мерник, например крупный шприц. И все перевести в граммы на литр.
 
@@ -529,7 +529,7 @@ sidebar: ponics_sidebar
 > > 
 > > Сколько же у вас наведено раствора?
 > 
-> [font=verdana]у меня расход совсем никакой сейчас т.к. растишек две с половиной штуки всего[/font]
+> у меня расход совсем никакой сейчас т.к. растишек две с половиной штуки всего
 > 
 > 
 > > В любом случае, вы все еще сможете определить реальную концентрацию, если все взвешивали точно. Вам просто нужны точные весы с 0.01г, и точный мерник, например крупный шприц. И все перевести в граммы на литр.
@@ -587,19 +587,15 @@ sidebar: ponics_sidebar
 
 **allex_step** 20-10-2017
 
-> [font=verdana]
-> 
 > Будьте добры, развейте свою мысль.
+
+это не моя мысль
+
+[www.plantedtank.net/...html#post3195473](http://forum.ponics.ru/go.php?url=aHR0cDovL3d3dy5wbGFudGVkdGFuay5uZXQvZm9ydW1zLzIwLWRpeS8zMTQwMDktYXJkdWluby1hdXRvLWRvc3Nlci5odG1sI3Bvc3QzMTk1NDcz){:target="_blank"}
+
+> If you&#039;re using the pwm channels, you won&#039;t need relays for the pumps. zero pwm will shut them off.
 > 
-> [/font]
-
-[font=verdana]это не моя мысль[/font]
-
-[font=verdana][www.plantedtank.net/...html#post3195473](http://forum.ponics.ru/go.php?url=aHR0cDovL3d3dy5wbGFudGVkdGFuay5uZXQvZm9ydW1zLzIwLWRpeS8zMTQwMDktYXJkdWluby1hdXRvLWRvc3Nlci5odG1sI3Bvc3QzMTk1NDcz){:target="_blank"}[/font]
-
-> [font=verdana]If you&#039;re using the pwm channels, you won&#039;t need relays for the pumps. zero pwm will shut them off.[/font][font=verdana]
-> 
-> I just set up a peristaltic pump controlled by an arduino. You can check it out on my site.[/font]
+> I just set up a peristaltic pump controlled by an arduino. You can check it out on my site.
 
 [https://www.youtube.com/watch?time_continue=14&amp;v=8gr5I7OUo7I](https://www.youtube.com/watch?time_continue=14&amp;v=8gr5I7OUo7I){:target="_blank"}
 
@@ -667,35 +663,35 @@ sidebar: ponics_sidebar
 
 **allex_step** 21-10-2017
 
-> [font=verdana]Да не, эти насосы работают, я сперва проверил один. Примерно на 20 см поднимает.[/font]
+> Да не, эти насосы работают, я сперва проверил один. Примерно на 20 см поднимает.
 
-[font=verdana]как бы это не отозвалось каким нежданчиком со сторону ардуины... :-\ [/font]
+как бы это не отозвалось каким нежданчиком со сторону ардуины... :-\ 
 
-[font=verdana]ток замерял?[/font]
+ток замерял?
 
 
 **siv237** 21-10-2017
 
-> > [font=verdana]Да не, эти насосы работают, я сперва проверил один. Примерно на 20 см поднимает.[/font]
+> > Да не, эти насосы работают, я сперва проверил один. Примерно на 20 см поднимает.
 > 
 > 
 > 
-> [font=verdana]как бы это не отозвалось каким нежданчиком со сторону ардуины... :-\ [/font]
+> как бы это не отозвалось каким нежданчиком со сторону ардуины... :-\ 
 > 
-> [font=verdana]ток замерял?[/font]
+> ток замерял?
 
 Буду смотреть, 8 реле у меня впринципе есть и пара ардуин в запасе. Интересно именно примитивную конструкцию построить и определить её недостатки по факту.
 
 
 **Vad** 21-10-2017
 
-> > [font=verdana]Да не, эти насосы работают, я сперва проверил один. Примерно на 20 см поднимает.[/font]
+> > Да не, эти насосы работают, я сперва проверил один. Примерно на 20 см поднимает.
 > 
 > 
 > 
-> [font=verdana]как бы это не отозвалось каким нежданчиком со сторону ардуины... :-\ [/font]
+> как бы это не отозвалось каким нежданчиком со сторону ардуины... :-\ 
 > 
-> [font=verdana]ток замерял?[/font]
+> ток замерял?
 
 какой, нахрен, нежданчик.. ;D
 

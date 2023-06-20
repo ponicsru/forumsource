@@ -369,13 +369,11 @@ CarboLoad сделан из 100% органических составляющи
 
 ![](https://ua.all.biz/img/ua/catalog/1396896.png)
 
-[font=Verdana][/font]
-> [font=Verdana][size=2]Ну а по сути выращивать в кокосе это даже не совсем гидропоника.[/size][/font]
+> Ну а по сути выращивать в кокосе это даже не совсем гидропоника.
 
-[font=Verdana][/font]
-> [font=Verdana][size=2][font=Arial]Голландские садоводы нашли, что смесь из 50% кокосового волокна и 50% керамзита является совершенным субстратом.[/font][/size][/font]
+> Голландские садоводы нашли, что смесь из 50% кокосового волокна и 50% керамзита является совершенным субстратом.
 
-[font=Verdana][http://www.vashsad.ua/plants/room_plants/hydroponics/substrates/show/6215/](http://www.vashsad.ua/plants/room_plants/hydroponics/substrates/show/6215/){:target="_blank"}[/font]
+[http://www.vashsad.ua/plants/room_plants/hydroponics/substrates/show/6215/](http://www.vashsad.ua/plants/room_plants/hydroponics/substrates/show/6215/){:target="_blank"}
 
 
 **Aeroponik** 28-02-2019

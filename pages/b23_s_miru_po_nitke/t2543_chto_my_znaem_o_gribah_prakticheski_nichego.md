@@ -5,7 +5,7 @@ sidebar: ponics_sidebar
 
 **Oxy** 29-10-2016
 
-[font=Roboto][size=36px][font=inherit]Энергия грибов: самая большая тайна
+Энергия грибов: самая большая тайна
 
 О чём думают грибы?
 
@@ -143,7 +143,7 @@ Physarum polycephalum словно почувствовал запах саха�
 
 — Это начало.
 
-Автор: Игнат Гвоздик psifactor.info/ed/energiya-gribov-samaya-bolshaya-tajna.htm[/font][/size][/size][/font][/color]
+Автор: Игнат Гвоздик psifactor.info/ed/energiya-gribov-samaya-bolshaya-tajna.htm
 
 
 **Cyclamech** 30-10-2016

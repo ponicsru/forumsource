@@ -5,7 +5,7 @@ sidebar: ponics_sidebar
 
 **GeorGi-uS** 19-04-2011
 
-[font=times new roman][/font][size=12pt][/size] привет всем!
+ привет всем!
 
 много читал ваш сайт , форум.
 
@@ -89,7 +89,7 @@ sidebar: ponics_sidebar
 
 **Mole_Garden** 19-04-2011
 
-> [font=times new roman][/font][size=12pt][/size] привет всем!
+> привет всем!
 > 
 > много читал ваш сайт , форум.
 
@@ -190,7 +190,7 @@ sidebar: ponics_sidebar
 
 N 140 240
 
-P 38.5  30 (а может и 60, не знаю какой именно суперфосфат)
+P 38.5 30 (а может и 60, не знаю какой именно суперфосфат)
 
 K 190 135
 

@@ -154,7 +154,7 @@ sidebar: ponics_sidebar
 
 **mdima** 02-05-2009
 
-Ника, [тут[/glow]](http://www.vfg.ru/mdima/mole.html][glow=red,2,300){:target="_blank"} Моле все подробно рассказывает ;) советую посмотреть это видео.
+Ника, [тут](http://www.vfg.ru/mdima/mole.html){:target="_blank"} Моле все подробно рассказывает ;) советую посмотреть это видео.
 
 
 **Mole_Garden** 03-05-2009
@@ -186,7 +186,7 @@ sidebar: ponics_sidebar
 
 **nikadubrovsky** 06-05-2009
 
-> Ника, [тут[/glow]](http://www.vfg.ru/mdima/mole.html][glow=red,2,300){:target="_blank"} Моле все подробно рассказывает ;) советую посмотреть это видео.
+> Ника, [тут](http://www.vfg.ru/mdima/mole.html){:target="_blank"} Моле все подробно рассказывает ;) советую посмотреть это видео.
 
 Спасибо! 
 

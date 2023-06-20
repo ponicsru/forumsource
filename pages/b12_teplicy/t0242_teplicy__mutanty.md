@@ -188,9 +188,9 @@ P.S. Если вы внимательно присмотритесь, то по�
 > 
 > Я предпочту Купол, где стрессы и напряжения уходят прочь.
 
-[size=6pt]http://www.simplydifferently.org/Geodesic_Dome
+http://www.simplydifferently.org/Geodesic_Dome
 
-[http://sites.google.com/site/alldomesworld/](http://sites.google.com/site/alldomesworld/){:target="_blank"}[/size]
+[http://sites.google.com/site/alldomesworld/](http://sites.google.com/site/alldomesworld/){:target="_blank"}
 
 
 **Mole_Garden** 06-05-2010
@@ -223,7 +223,7 @@ davyd, выложи пожалуйста источник.
 
 обязательно для интересующихся: Димде, Манфред - Целительная сила пирамид
 
-ЗЫ2[size=8pt] (офтоп маленько, а может и баян)[/size] как испанцы "жгут"? а? )
+ЗЫ2 (офтоп маленько, а может и баян) как испанцы "жгут"? а? )
 
 ![](http://www.eoearth.org/images/thumb/6/6b/Almeria_Spain_satellite_image_1974.jpg/250px-Almeria_Spain_satellite_image_1974.jpg) ![](http://www.eoearth.org/images/thumb/b/b6/Almeria_Spain_satellite_image_2004.jpg/250px-Almeria_Spain_satellite_image_2004.jpg)
 

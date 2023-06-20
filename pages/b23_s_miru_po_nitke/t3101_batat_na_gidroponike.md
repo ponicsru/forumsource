@@ -7,6 +7,6 @@ sidebar: ponics_sidebar
 
 Однажды, очень давно кто-то интересовался, можно ли выращивать батат на гидре. Если не ошибаюсь - Батат и пробовал :) Вот попался интересный видосик, без озвучки, все просто и понятно :) 
 
-[size=2px]https://www.youtube.com/watch?v=LUp2-DqEfOE[/size]
+https://www.youtube.com/watch?v=LUp2-DqEfOE
 
 

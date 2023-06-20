@@ -81,7 +81,7 @@ sidebar: ponics_sidebar
 
 p.s. За наводку на статью спасибо Hrun, который уже не первый раз подкидывает интересную инфу. ;)
 
-[right]Источник: [Мир новостей](http://www.mirnov.ru/mn/27-1.php){:target="_blank"}[/right]
+Источник: [Мир новостей](http://www.mirnov.ru/mn/27-1.php){:target="_blank"}
 
 
 **Hrun** 20-08-2009

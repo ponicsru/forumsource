@@ -5,7 +5,7 @@ sidebar: ponics_sidebar
 
 **qwerty771** 21-08-2018
 
-[size=8pt](Подобной темы на форуме поиском не нашел)[/size]
+(Подобной темы на форуме поиском не нашел)
 
 Добрый день, уважаемые!
 
@@ -293,7 +293,7 @@ sidebar: ponics_sidebar
 
 **allex_step** 25-08-2018
 
-[size=1em][font=verdana]Wildcat, а какие сорта выращиваете?[/font][/size]
+Wildcat, а какие сорта выращиваете?
 
 
 **Wildcat** 25-08-2018

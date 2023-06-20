@@ -71,9 +71,7 @@ sidebar: ponics_sidebar
 > 
 > Т.е. выкидывать остатки GHE и переходить на сыпучку?
 
-[font=verdana]как вариант - можно попробовать подкорректировать соотношение NH4/NO3[/font][size=1em] в этом растворе ([font=verdana]аммиачн[/font][font=verdana]ой селитрой?[/font])
-
-[/size]
+как вариант - можно попробовать подкорректировать соотношение NH4/NO3 в этом растворе (аммиачной селитрой?)
 
 > А желтизна по краям листьев тоже с этим связана?
 
@@ -82,9 +80,7 @@ sidebar: ponics_sidebar
 
 **brm** 13-05-2018
 
-> [font=verdana]как вариант - можно попробовать подкорректировать соотношение NH4/NO3[/font][size=1em] в этом растворе ([font=verdana]аммиачн[/font][font=verdana]ой селитрой?[/font])
-> 
-> [/size]
+> как вариант - можно попробовать подкорректировать соотношение NH4/NO3 в этом растворе (аммиачной селитрой?)
 
 Извиняюсь за ламерство... Т.е. Растения потребляют NH4 меньше, поэтому раствор кислит. NH4 надо уменьшить (а по факту NO3 увеличить). И судя по листьям - лучше если это будет KNO3, правильно?
 
@@ -434,9 +430,9 @@ N:179 (NO3:172 NH4:7) P:48 K:291 Ca:193 Mg:24 S:92 Fe:2 Mn:0,55 B:0,35 Zn:0,33 C
 
 **allex_step** 02-06-2018
 
-![](http://udivitelno.com/images/9/pomidornoe-derevo/4-%D0%A3%D0%B4%D0%B8%D0%B2%D0%B8%D1%82%D0%B5%D0%BB%D1%8C%D0%BD%D0%BE%D0%B5%20%D0%BF%D0%BE%D0%BC%D0%B8%D0%B4%D0%BE%D1%80%D0%BD%D0%BE%D0%B5%20%D0%B4%D0%B5%D1%80%D0%B5%D0%B2%D0%BE%20%D0%A1%D0%BF%D1%80%D1%83%D1%82%20F1.jpg)[size=2]
+![](http://udivitelno.com/images/9/pomidornoe-derevo/4-%D0%A3%D0%B4%D0%B8%D0%B2%D0%B8%D1%82%D0%B5%D0%BB%D1%8C%D0%BD%D0%BE%D0%B5%20%D0%BF%D0%BE%D0%BC%D0%B8%D0%B4%D0%BE%D1%80%D0%BD%D0%BE%D0%B5%20%D0%B4%D0%B5%D1%80%D0%B5%D0%B2%D0%BE%20%D0%A1%D0%BF%D1%80%D1%83%D1%82%20F1.jpg)
 
-[udivitelno.com/pl...-sprut-f1-11-foto](http://forum.ponics.ru/go.php?url=aHR0cDovL3VkaXZpdGVsbm8uY29tL3BsYW50cy9pdGVtLzYwMi1wb21pZG9ybm9lLWRlcmV2by1zcHJ1dC1mMS0xMS1mb3Rv){:target="_blank"}[/size]
+[udivitelno.com/pl...-sprut-f1-11-foto](http://forum.ponics.ru/go.php?url=aHR0cDovL3VkaXZpdGVsbm8uY29tL3BsYW50cy9pdGVtLzYwMi1wb21pZG9ybm9lLWRlcmV2by1zcHJ1dC1mMS0xMS1mb3Rv){:target="_blank"}
 
 
 **siv237** 03-06-2018

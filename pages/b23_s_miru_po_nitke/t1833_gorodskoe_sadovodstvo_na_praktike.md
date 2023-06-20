@@ -286,7 +286,7 @@ Sorry, лучше с картинками у меня не получилось,
 
 Не нашел тему с домиками на крыше - втыкаю сюда.
 
-Интересненько: [font=Verdana][size=78%][http://za-y-ac.livejournal.com/933213.html](http://za-y-ac.livejournal.com/933213.html){:target="_blank"}[/size][/font]
+Интересненько: [http://za-y-ac.livejournal.com/933213.html](http://za-y-ac.livejournal.com/933213.html){:target="_blank"}
 
 
 **SergF** 26-03-2014

@@ -85,7 +85,7 @@ sidebar: ponics_sidebar
 
 вице-президент ОПОРЫ России
 
-[right]Автор: В.Корочкин, вице-президент ОПОРЫ России[/right]
+Автор: В.Корочкин, вице-президент ОПОРЫ России
 
 Взято: [http://www.idrusogorod.ru/articles/detail878.html](http://www.idrusogorod.ru/articles/detail878.html){:target="_blank"}
 

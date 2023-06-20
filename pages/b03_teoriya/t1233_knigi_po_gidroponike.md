@@ -280,6 +280,6 @@ https://www.amazon.com/DIY-Hydroponics-Affordable-Hydroponic-Homesteading-ebook/
 
 хде бесплатно?
 
-[size=2px]![](http://i.piccy.info/i9/7914f735c3efc601d900c2ddd39b67fb/1541231857/22850/1269260/Screen_Shot_2018_11_03_at_09_54_40.png)![](http://i.piccy.info/a3/2018-11-03-07-57/i9-12740473/193x132-r/i.gif)[/size]
+![](http://i.piccy.info/i9/7914f735c3efc601d900c2ddd39b67fb/1541231857/22850/1269260/Screen_Shot_2018_11_03_at_09_54_40.png)![](http://i.piccy.info/a3/2018-11-03-07-57/i9-12740473/193x132-r/i.gif)
 
 

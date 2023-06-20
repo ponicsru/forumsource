@@ -647,7 +647,7 @@ http://forum.ponics.ru/index.php?topic=4634.0
 
 **Likl** 15-06-2020
 
-Вот :D[img][/img]
+Вот :D
 
 [![](/attachimages/20732_sketch-1592216618236.png)](https://t.me/ponics_ru_files/19674){:target="_blank"}
 

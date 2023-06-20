@@ -58,15 +58,15 @@ ps ну точно...
 
 **allex_step** 26-08-2018
 
-[size=2]ну вот... всё как я и предполагал - товарисч просто не желает придерживаться инструкции....... *???* 
+ну вот... всё как я и предполагал - товарисч просто не желает придерживаться инструкции....... *???* 
 
 ![](http://i.piccy.info/i9/0040d80537be7150ac1c1e1dfc951e8c/1535298367/7932/1149857/Screen_Shot_2018_08_26_at_18_45_37.png)![](http://i.piccy.info/a3/2018-08-26-15-46/i9-12576735/263x59-r/i.gif)
 
 вот считайте (тут нормально виден состав) 
 
-[www.hollands-glorie.net/...rigineel.jpg](http://forum.ponics.ru/go.php?url=aHR0cDovL3d3dy5ob2xsYW5kcy1nbG9yaWUubmV0L3IvcHJvZHVjdHMvVjIxMDVfb3JpZ2luZWVsLmpwZw==){:target="_blank"}[/size]
+[www.hollands-glorie.net/...rigineel.jpg](http://forum.ponics.ru/go.php?url=aHR0cDovL3d3dy5ob2xsYW5kcy1nbG9yaWUubmV0L3IvcHJvZHVjdHMvVjIxMDVfb3JpZ2luZWVsLmpwZw==){:target="_blank"}
 
-[size=2][font=Verdana]обычный концентрат А+Б с хелатной микрой (вот только БОР, похоже, положить забыли [/font] :D [font=Verdana])[/font][/size]
+обычный концентрат А+Б с хелатной микрой (вот только БОР, похоже, положить забыли :D )
 
 
 **Седой** 26-08-2018
@@ -76,15 +76,15 @@ ps ну точно...
 
 **** 26-08-2018
 
-> [size=2]ну вот... всё как я и предполагал - товарисч просто не желает придерживаться инструкции....... *???* 
+> ну вот... всё как я и предполагал - товарисч просто не желает придерживаться инструкции....... *???* 
 > 
 > ![](http://i.piccy.info/i9/0040d80537be7150ac1c1e1dfc951e8c/1535298367/7932/1149857/Screen_Shot_2018_08_26_at_18_45_37.png)![](http://i.piccy.info/a3/2018-08-26-15-46/i9-12576735/263x59-r/i.gif)
 > 
 > вот считайте (тут нормально виден состав) 
 > 
-> [www.hollands-glorie.net/...rigineel.jpg](http://forum.ponics.ru/go.php?url=aHR0cDovL3d3dy5ob2xsYW5kcy1nbG9yaWUubmV0L3IvcHJvZHVjdHMvVjIxMDVfb3JpZ2luZWVsLmpwZw==){:target="_blank"}[/size]
+> [www.hollands-glorie.net/...rigineel.jpg](http://forum.ponics.ru/go.php?url=aHR0cDovL3d3dy5ob2xsYW5kcy1nbG9yaWUubmV0L3IvcHJvZHVjdHMvVjIxMDVfb3JpZ2luZWVsLmpwZw==){:target="_blank"}
 > 
-> [size=2][font=Verdana]обычный концентрат А+Б с хелатной микрой (вот только БОР, похоже, положить забыли [/font] :D [font=Verdana])[/font][/size]
+> обычный концентрат А+Б с хелатной микрой (вот только БОР, похоже, положить забыли :D )
 
 Попробуй еще раз доходчиво объяснить мне,в чем я не желаю придерживаться инструкции. А то я видать к вечеру тупею малость.
 

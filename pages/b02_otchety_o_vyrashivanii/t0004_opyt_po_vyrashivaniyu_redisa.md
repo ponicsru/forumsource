@@ -5,7 +5,7 @@ sidebar: ponics_sidebar
 
 **mdima** 25-03-2009
 
-[img][/img]
+
 
 [![](/attachimages/3_redis9.png)](https://t.me/ponics_ru_files/515){:target="_blank"}
 

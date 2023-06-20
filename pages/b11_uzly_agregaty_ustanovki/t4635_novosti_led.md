@@ -5,9 +5,9 @@ sidebar: ponics_sidebar
 
 **allex_step** 05-03-2019
 
-[size=2]![](http://i.piccy.info/i9/2037865783d09971a4795da4cd896434/1551776085/115252/1269260/Screen_Shot_2019_03_05_at_10_47_59_800.jpg)![](http://i.piccy.info/a3/2019-03-05-08-54/i9-13014559/800x473-r/i.gif)[/size]
+![](http://i.piccy.info/i9/2037865783d09971a4795da4cd896434/1551776085/115252/1269260/Screen_Shot_2019_03_05_at_10_47_59_800.jpg)![](http://i.piccy.info/a3/2019-03-05-08-54/i9-13014559/800x473-r/i.gif)
 
-[font=Verdana][size=2][https://www.i-magazin.com/effizienzsteigerung-fuer-horticulture-branche/](http://){:target="_blank"}[/size][/font]
+[https://www.i-magazin.com/effizienzsteigerung-fuer-horticulture-branche/](http://){:target="_blank"}
 
 
 **VVS_** 05-03-2019
@@ -27,25 +27,25 @@ https://www.cree.com/led-components/media/documents/XLampXPE2.pdf
 
 **allex_step** 17-03-2019
 
-[font=roboto][size=1.45em]MAXLITE LAUNCHES LED SPOTLIGHT AS ADVANCED LIGHTING FOR HORTICULTURE APPLICATIONS[/size][/font]
+MAXLITE LAUNCHES LED SPOTLIGHT AS ADVANCED LIGHTING FOR HORTICULTURE APPLICATIONS
 
-[size=1em][http://pacificelectricals.com/index.php/2019/03/15/maxlite-launches-led-spotlight-as-advanced-lighting-for-horticulture-applications/](http://pacificelectricals.com/index.php/2019/03/15/maxlite-launches-led-spotlight-as-advanced-lighting-for-horticulture-applications/){:target="_blank"}[/size]
+[http://pacificelectricals.com/index.php/2019/03/15/maxlite-launches-led-spotlight-as-advanced-lighting-for-horticulture-applications/](http://pacificelectricals.com/index.php/2019/03/15/maxlite-launches-led-spotlight-as-advanced-lighting-for-horticulture-applications/){:target="_blank"}
 
 
 **allex_step** 21-03-2019
 
-[size=40px][font=arial]PhotonMax LED Spot Light first product approved for DLC Horticultural Qualified Products List[/font][/size]
+PhotonMax LED Spot Light first product approved for DLC Horticultural Qualified Products List
 
-[size=1em][https://www.ledsmagazine.com/ugc/2019/03/19/photonmax-led-spot-light-first-product-approved-for-dlc-horticultural-qualified-products-list.html](https://www.ledsmagazine.com/ugc/2019/03/19/photonmax-led-spot-light-first-product-approved-for-dlc-horticultural-qualified-products-list.html){:target="_blank"}[/size]
+[https://www.ledsmagazine.com/ugc/2019/03/19/photonmax-led-spot-light-first-product-approved-for-dlc-horticultural-qualified-products-list.html](https://www.ledsmagazine.com/ugc/2019/03/19/photonmax-led-spot-light-first-product-approved-for-dlc-horticultural-qualified-products-list.html){:target="_blank"}
 
-[size=2px]https://www.ledlightingwholesaleinc.com/v/vspfiles/Erythin/DataSheet_PH-SL.pdf[/size]
+https://www.ledlightingwholesaleinc.com/v/vspfiles/Erythin/DataSheet_PH-SL.pdf
 
 
 **allex_step** 21-03-2019
 
 даташит к лампе, упомянутой в сообщении выше
 
-[https://www.ledlightingwholesaleinc.com/v/vspfiles/Erythin/DataSheet_PH-SL.pdf[/size]](https://www.ledlightingwholesaleinc.com/v/vspfiles/Erythin/DataSheet_PH-SL.pdf][size=2){:target="_blank"}
+[https://www.ledlightingwholesaleinc.com/v/vspfiles/Erythin/DataSheet_PH-SL.pdf](https://www.ledlightingwholesaleinc.com/v/vspfiles/Erythin/DataSheet_PH-SL.pdf){:target="_blank"}
 
 
 **VVS_** 22-03-2019
@@ -59,7 +59,7 @@ https://www.growlight.ru/content/19-izmerenie-par-y-raznix-lamp
 
 > даташит к лампе, упомянутой в сообщении выше
 > 
-> [https://www.ledlightingwholesaleinc.com/v/vspfiles/Erythin/DataSheet_PH-SL.pdf[/size]](https://www.ledlightingwholesaleinc.com/v/vspfiles/Erythin/DataSheet_PH-SL.pdf][size=2){:target="_blank"}
+> [https://www.ledlightingwholesaleinc.com/v/vspfiles/Erythin/DataSheet_PH-SL.pdf](https://www.ledlightingwholesaleinc.com/v/vspfiles/Erythin/DataSheet_PH-SL.pdf){:target="_blank"}
 
 Это они всерьез что ли приводят данные освещённости с высоты 30см для 600Вт лампы? :o
 
@@ -70,7 +70,7 @@ https://www.growlight.ru/content/19-izmerenie-par-y-raznix-lamp
 
 > > даташит к лампе, упомянутой в сообщении выше
 > > 
-> > [https://www.ledlightingwholesaleinc.com/v/vspfiles/Erythin/DataSheet_PH-SL.pdf[/size]](https://www.ledlightingwholesaleinc.com/v/vspfiles/Erythin/DataSheet_PH-SL.pdf][size=1em){:target="_blank"}
+> > [https://www.ledlightingwholesaleinc.com/v/vspfiles/Erythin/DataSheet_PH-SL.pdf](https://www.ledlightingwholesaleinc.com/v/vspfiles/Erythin/DataSheet_PH-SL.pdf){:target="_blank"}
 > 
 > 
 > 
@@ -106,20 +106,20 @@ https://www.growlight.ru/content/19-izmerenie-par-y-raznix-lamp
 
 **allex_step** 01-04-2019
 
-[size=1em]новости из выпуска ламп:
+новости из выпуска ламп:
 
-![](https://cf.shopee.com.my/file/d28e4468670772e0f07595f5afd86425_tn)[/size]
+![](https://cf.shopee.com.my/file/d28e4468670772e0f07595f5afd86425_tn)
 
-[size=1em][.com.my/2-Feet-(60cm)-CityFarm-Horticulture-Full-Spectrum-LED-T8-Tube-i.26150662.1622026923](https://shopee.com.my/2-Feet-(60cm)-CityFarm-Horticulture-Full-Spectrum-LED-T8-Tube-i.26150662.1622026923]https://shopee[/url][/size][size=1em][font=Verdana][url=https://shopee.com.my/2-Feet-(60cm)-CityFarm-Horticulture-Full-Spectrum-LED-T8-Tube-i.26150662.1622026923){:target="_blank"}[/font][/size]
+[.com.my/2-Feet-(60cm)-CityFarm-Horticulture-Full-Spectrum-LED-T8-Tube-i.26150662.1622026923](https://shopee.com.my/2-Feet-(60cm)-CityFarm-Horticulture-Full-Spectrum-LED-T8-Tube-i.26150662.1622026923]https://shopee[/url][url=https://shopee.com.my/2-Feet-(60cm)-CityFarm-Horticulture-Full-Spectrum-LED-T8-Tube-i.26150662.1622026923){:target="_blank"}
 
-[size=1em][font=verdana]130 µmol/m2/s at 15cm [/font]на Power consumption: 10W Power Factor: &gt;0.9 выглядит довольно таки неплохо как для рассады и зелени (судя по описанию)...[/size]
+130 µmol/m2/s at 15cm на Power consumption: 10W Power Factor: &gt;0.9 выглядит довольно таки неплохо как для рассады и зелени (судя по описанию)...
 
 
 **allex_step** 26-04-2019
 
-[size=2][https://www.eenewsled.com/news/white-leds-deliver-310-mmolj-horticulture](https://www.eenewsled.com/news/white-leds-deliver-310-mmolj-horticulture){:target="_blank"}
+[https://www.eenewsled.com/news/white-leds-deliver-310-mmolj-horticulture](https://www.eenewsled.com/news/white-leds-deliver-310-mmolj-horticulture){:target="_blank"}
 
-[https://en.jiagle.com/lighting-fair/press-release-news/1164143.html](https://en.jiagle.com/lighting-fair/press-release-news/1164143.html){:target="_blank"}[/size]
+[https://en.jiagle.com/lighting-fair/press-release-news/1164143.html](https://en.jiagle.com/lighting-fair/press-release-news/1164143.html){:target="_blank"}
 
 
 **allex_step** 27-04-2019

@@ -137,7 +137,7 @@ sidebar: ponics_sidebar
 
 > Судари, на ваших фотках не фиалки, а [сенполии](https://ru.wikipedia.org/wiki/%D0%A1%D0%B5%D0%BD%D0%BF%D0%BE%D0%BB%D0%B8%D1%8F){:target="_blank"}. *Bos* 
 
-> [font=arial]Сенполии[/font](Saintpaulia), или узамбарские [font=arial]фиалки [/font]принадлежат к семейству геснериевых.
+> Сенполии(Saintpaulia), или узамбарские фиалки принадлежат к семейству геснериевых.
 
  *crazy* сапсем не фиалки..?
 
@@ -146,7 +146,7 @@ sidebar: ponics_sidebar
 
 > > Судари, на ваших фотках не фиалки, а [сенполии](https://ru.wikipedia.org/wiki/%D0%A1%D0%B5%D0%BD%D0%BF%D0%BE%D0%BB%D0%B8%D1%8F){:target="_blank"}. *Bos* 
 > 
-> > [font=arial]Сенполии[/font](Saintpaulia), или узамбарские [font=arial]фиалки [/font]принадлежат к семейству геснериевых.
+> > Сенполии(Saintpaulia), или узамбарские фиалки принадлежат к семейству геснериевых.
 > 
 >  *crazy* сапсем не фиалки..?
 

@@ -246,7 +246,7 @@ https://reflaks.ru/catalog/teplichnye-svetilniki/teplichnyj-svetilnik-zhsp-30-40
 
 в статье упоминаются "красно-синие" без какого-либо намека на соотношение цветов. да еще и люмены их меряют на кой то...
 
-[size=2px]![](http://i.piccy.info/i9/5eb8199cc193fa8a6e1461ca3d2978ef/1553079563/170147/1269260/Screen_Shot_2019_03_20_at_12_53_55.png)![](http://i.piccy.info/a3/2019-03-20-10-59/i9-13049181/780x452-r/i.gif)[/size]
+![](http://i.piccy.info/i9/5eb8199cc193fa8a6e1461ca3d2978ef/1553079563/170147/1269260/Screen_Shot_2019_03_20_at_12_53_55.png)![](http://i.piccy.info/a3/2019-03-20-10-59/i9-13049181/780x452-r/i.gif)
 
 а последние строчки ваще не понятно откуда высосаны
 

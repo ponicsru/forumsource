@@ -27,8 +27,6 @@ sidebar: ponics_sidebar
 
 фото
 
-[img][/img]
-
 [![](/attachimages/9758_DSCF2327(1).jpg)](https://t.me/ponics_ru_files/7069){:target="_blank"}
 
 [![](/attachimages/9760_DSCF2328(1).jpg)](https://t.me/ponics_ru_files/7070){:target="_blank"}

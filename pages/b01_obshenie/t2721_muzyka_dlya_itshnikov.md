@@ -38,9 +38,9 @@ sidebar: ponics_sidebar
 
 **allex_step** 27-09-2017
 
-[size=0.7em]а прахфесыр Памидор ведь даже и в зоологии ни бум-бум... :o [/size]
+а прахфесыр Памидор ведь даже и в зоологии ни бум-бум... :o 
 
-[size=1em]как по мне - так такой вариант более достойный[/size][font=verdana][www.dropbox.com/s...n%20Ilic.mov?dl=0](http://forum.ponics.ru/go.php?url=aHR0cHM6Ly93d3cuZHJvcGJveC5jb20vcy96dzRmYjJ5MXdoMXFuNWcvU2NyaWFiaW5lJTIwXyUyMFByJUMzJUE5bHVkZSUyMG9wJTIwMTYlMjBuJUMyJUIwJTIwMSUyMHBhciUyMEl2YW4lMjBJbGljLm1vdj9kbD0w){:target="_blank"}[/font]
+как по мне - так такой вариант более достойный[www.dropbox.com/s...n%20Ilic.mov?dl=0](http://forum.ponics.ru/go.php?url=aHR0cHM6Ly93d3cuZHJvcGJveC5jb20vcy96dzRmYjJ5MXdoMXFuNWcvU2NyaWFiaW5lJTIwXyUyMFByJUMzJUE5bHVkZSUyMG9wJTIwMTYlMjBuJUMyJUIwJTIwMSUyMHBhciUyMEl2YW4lMjBJbGljLm1vdj9kbD0w){:target="_blank"}
 
 ну на худой конец - вот так [https://www.youtube.com/watch?v=ILfBqOhAxCY](https://www.youtube.com/watch?v=ILfBqOhAxCY){:target="_blank"}
 

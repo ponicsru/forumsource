@@ -265,7 +265,7 @@ sidebar: ponics_sidebar
 
 Видео работы системы [Autopot ](http://forum.ponics.ru/index.php/topic,72.msg3689.html#msg3689){:target="_blank"}
 
-![](http://www.autopot.co.uk/images/AQUAVALVE_r27_c2.gif)[img][/img]
+![](http://www.autopot.co.uk/images/AQUAVALVE_r27_c2.gif)
 
 
 **Mole_Garden** 27-06-2009

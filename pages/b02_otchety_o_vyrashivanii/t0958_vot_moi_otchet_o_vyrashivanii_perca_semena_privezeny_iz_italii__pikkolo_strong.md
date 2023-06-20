@@ -275,8 +275,6 @@ order because it is the pH that determines what the plant can absorb. When it is
 
  *sos*
 
-[font=courier][/font][size=24pt][/size]
-
 катастрофа вырубилось отопление и перци повесили листья !
 
 что делать не знаю температура упала до 22 градусов ничего не могу понять !

@@ -15,7 +15,7 @@ sidebar: ponics_sidebar
 
 ООО "СлимПак" 
 
-(812)319-30-39, 8-911-117-20-06 Гаряева Татьяна[font=times new roman][/font]
+(812)319-30-39, 8-911-117-20-06 Гаряева Татьяна
 
 [![](/attachimages/15818_Фото пакетов.jpg)](https://t.me/ponics_ru_files/12517){:target="_blank"}
 
