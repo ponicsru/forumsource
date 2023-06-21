@@ -77,17 +77,10 @@ Bhut jolokia - прорастил в земле и оставил его в не
 
 Халапеньо? А почему только одной разновидности? Это шикарный вид перца и динамично развивающийся:
 
-[list]
-
-[li][NuMex Vaquero](https://chile.nmsu.edu/details/555){:target="_blank"}[/li]
-
-[li][NuMex Primavera](https://chile.nmsu.edu/details/395){:target="_blank"}[/li]
-
-[li][NuMex Jalmundo](https://chile.nmsu.edu/details/539){:target="_blank"}[/li]
-
-[li]…[/li]
-
-[/list]
+- [NuMex Vaquero](https://chile.nmsu.edu/details/555){:target="_blank"}
+- [NuMex Primavera](https://chile.nmsu.edu/details/395){:target="_blank"}
+- [NuMex Jalmundo](https://chile.nmsu.edu/details/539){:target="_blank"}
+- …
 
 Бхат Йолокиа? По-моему просто опасно для выращивания! *crazy*
 
@@ -95,19 +88,11 @@ Bhut jolokia - прорастил в земле и оставил его в не
 
 Слышали Вы, как перцеведы делят все перцы?
 
-[list]
-
-[li]Capsicum annuum ("аннумы") - это сладкие, слабоострые, халапены и прочие декоративные. Самые многочисленные и "скушные" для выращивания.[/li]
-
-[li]Capsicum chinense ("хинесы") - самые "термоядерные". К ним относятся Хабанеро, Бхат Йолокия, Каролина Рипер и многие другие прославленные.[/li]
-
-[li]Capsicum baccatum ("бакатумы") - самые "гурманские". Говорят, они "фруктовые" на вкус. Типа "бонус" к сотне тысяч Сковиллов.[/li]
-
-[li]Capsicum frutescens - декоративные.[/li]
-
-[li]Capsicum pubescens - редкие.[/li]
-
-[/list]
+- Capsicum annuum ("аннумы") - это сладкие, слабоострые, халапены и прочие декоративные. Самые многочисленные и "скушные" для выращивания.
+- Capsicum chinense ("хинесы") - самые "термоядерные". К ним относятся Хабанеро, Бхат Йолокия, Каролина Рипер и многие другие прославленные.
+- Capsicum baccatum ("бакатумы") - самые "гурманские". Говорят, они "фруктовые" на вкус. Типа "бонус" к сотне тысяч Сковиллов.
+- Capsicum frutescens - декоративные.
+- Capsicum pubescens - редкие.
 
 Типа такого.
 
