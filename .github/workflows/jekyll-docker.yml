@@ -30,7 +30,7 @@ jobs:
         # Create incremental commit instead of doing push force
         keep_history: true
         # Allow an empty commit to be created
-        # allow_empty_commit: # optional, default is true
+        allow_empty_commit: false # optional, default is true
         # Build directory to deploy
         build_dir: _site 
         # Whether to treat build_dir as an absolute path
@@ -51,3 +51,5 @@ jobs:
         dry_run: true # optional, default is false
         # Enable verbose output
         verbose: true # optional, default is false
+      env:
+        GH_PAT: {{ secrets.IOPAT }}

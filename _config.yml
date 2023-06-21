@@ -35,6 +35,11 @@ exclude:
   - docker-compose
   - LICENSE
   - LICENSE-BSD-NAVGOCO.txt
+  - Gemfile
+  - Gemfile.lock
+  - build.sh
+  - watch.sh
+  - createtag
 # these are the files and directories that jekyll will exclude from the build
 
 feedback_subject_line: 
