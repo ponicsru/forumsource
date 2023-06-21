@@ -52,4 +52,4 @@ jobs:
         # Enable verbose output
         verbose: true # optional, default is false
       env:
-        GH_PAT: {{ secrets.IOPAT }}
+        GH_PAT: ${{ secrets.IOPAT }}
