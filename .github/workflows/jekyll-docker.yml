@@ -48,8 +48,8 @@ jobs:
         # Allow Jekyll to build your site
         jekyll: false # optional, default is true
         # If enabled, nothing will be pushed
-        dry_run: true # optional, default is false
+        #dry_run: true # optional, default is false
         # Enable verbose output
-        verbose: true # optional, default is false
+        #verbose: true # optional, default is false
       env:
         GH_PAT: ${{ secrets.IOPAT }}
