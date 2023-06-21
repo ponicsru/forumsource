@@ -17,39 +17,12 @@ jobs:
         -v ${{ github.workspace }}:/srv/jekyll -v ${{ github.workspace }}/_site:/srv/jekyll/_site \
         jekyll/builder:4.2.2 /bin/bash -c "chmod -R 777 /srv/jekyll && jekyll build"
     - name: GitHub Pages
-      # You may pin to the exact commit or the version.
-      # uses: crazy-max/ghaction-github-pages@c0d7ff0487ee0415efb7f32dab10ea880330b1dd
-      uses: crazy-max/ghaction-github-pages@v3.1.0
-      with:
-        # Git domain (default github.com)
-        # domain: # optional, default is github.com
-        # GitHub repository where assets will be deployed (default $GITHUB_REPOSITORY)
-        repo: ponicsru/ponicsru.github.io
-        # Git branch where assets will be deployed
-        target_branch: main
-        # Create incremental commit instead of doing push force
-        keep_history: true
-        # Allow an empty commit to be created
-        allow_empty_commit: false # optional, default is true
-        # Build directory to deploy
-        build_dir: _site 
-        # Whether to treat build_dir as an absolute path
-        # absolute_build_dir: # optional, default is false
-        # If enabled, the content of symbolic links will be copied
-        # follow_symlinks: # optional, default is false
-        # The committer name and email address
-        # committer: # optional
-        # The author name and email address
-        # author: # optional
-        # Commit message
-        # commit_message: # optional
-        # Write the given domain name to the CNAME file
-        # fqdn: # optional
-        # Allow Jekyll to build your site
-        jekyll: false # optional, default is true
-        # If enabled, nothing will be pushed
-        dry_run: true # optional, default is false
-        # Enable verbose output
-        verbose: true # optional, default is false
+      run: |
+        mkdir /tmp/github-pages-ponicsru
+        git clone --branch main https://$GH_PAT@github.com/ponicsru/ponicsru.github.io /tmp/github-pages-ponicsru
+        cp -r ${{ github.workspace }}/_site/* /tmp/github-pages-ponicsru/
+        cd /tmp/github-pages-ponicsru/
+        git add .
+        git commit -m "Generation" --author="Actions"
       env:
         GH_PAT: ${{ secrets.IOPAT }}
